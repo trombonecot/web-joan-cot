@@ -1,0 +1,12 @@
+{
+  "version": 3,
+  "file": "bundle.css",
+  "sources": [
+    "../src/App.svelte"
+  ],
+  "sourcesContent": [
+    "<script>\n\timport MarkdownIt from 'markdown-it';\n\n\n\texport let name;\n\n</script>\n\n<style>\n\th1 {\n\t\tcolor: purple;\n\t}\n\t#main {\n\t\tbackground-image: url('/resources/bg.png')\n\t}\n</style>\n\n<div id=\"main\">\n\t<h1>Hello {name}!</h1>\naasasasasa\n\n</div>\n"
+  ],
+  "names": [],
+  "mappings": "AASC,EAAE,eAAC,CAAC,AACH,KAAK,CAAE,MAAM,AACd,CAAC,AACD,KAAK,eAAC,CAAC,AACN,gBAAgB,CAAE,IAAI,mBAAmB,CAAC;CAC3C,CAAC"
+}
