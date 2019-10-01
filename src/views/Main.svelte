@@ -49,12 +49,12 @@
     <div>Joan</div>
     <div>
         <a href="mailto:joancotros@gmail.com">
-            <img width="45" height="30" src="/resources/mail.png"/>
+            <img alt="mail" width="45" height="30" src="/resources/mail.png"/>
         </a>
     </div>
     <div>
-        <a href="#">
-            <img width="30" src="/resources/soundcloud.png"/>
+        <a href="https://soundcloud.com/oanotos/sets">
+            <img alt="soundcloud" width="30" src="/resources/soundcloud.png"/>
         </a>
     </div>
     <div>

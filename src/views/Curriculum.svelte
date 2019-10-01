@@ -36,11 +36,12 @@
         font-size: 11pt;
     }
     .close {
-        left: 620px;
+        left: 570px;
         top: 20px;
-        position: absolute;
+        position: relative;
         font-size: 20px;
         font-family: sans-serif;
+        float:left;
     }
 </style>
 
