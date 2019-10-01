@@ -20,7 +20,7 @@
 
 #### Altres projectes 
 2018-19 - **Worran** (aR+Lu+TT+Jo | Grup de música electrònica)
-2018-19 - **[Microbras](https://soundcloud.com/microbrass=)** (MicroBrass | Brass Band)
+2018-19 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
 2017-19 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + jo | Duet de impro)
 2013 - **[A shocking waste](https://soundcloud.com/oanotos/sets/a-shocking-waste-1)** (Joan Cot Ros | Album)
 2009-12 - **[Eric](https://soundcloud.com/benjamin-cerigo/eric-eric)** (Patch Ben and I	 | Jazz trio)
