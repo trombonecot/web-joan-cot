@@ -7,9 +7,9 @@
 2018 - **In Private** (Cia. PsicoProject | Dansa)
 2017 - **Fang** (Animal Religion | Circ)
 2017 - **Music for 1 Roue Cyr and 1 Batterie** (Florinda Fürst | Circ)
-2017 - **Assassines** ** (Cia La flor innata | Teatre)
+2017 - **Assassines** (Cia La flor innata | Teatre)**
 2017 - **Údul** (Los Galindos | Circ)
-2017 - **Soñando Con** * (Danilo Facelli | Poesia)
+2017 - **Soñando Con** (Danilo Facelli | Poesia)*
 2016 - **Ni cap ni peus** (Circ Vermut | Circ)
 2015 - **Descansa amb en Pau** (Bertus Compañó | Teatre)
 2014 - **Glofussss!!!!** (Cia. Vainilla Lila | Teatre)
