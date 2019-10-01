@@ -35,16 +35,6 @@
         height: 500px;
         font-size: 11pt;
     }
-
-#text-container::-webkit-scrollbar {
-    -webkit-appearance: none;
-}
-
-#text-container::-webkit-scrollbar:vertical {
-    width: 11px;
-}
-
-    
     .close {
         left: 620px;
         top: 20px;
