@@ -4,6 +4,6 @@ Em dic Joan, tinc 34 anys i em dedico a la música. Treballo principalment dins 
 
 Actualment estic produint dos espectacles amb Animal Religion, un per nens i nenes de 2 a 5 anys anomenat ...i les idees volen, i un segon a estrenar abril 2020 al TNC anomentat Ahir. Alhora col·laboro amb la Julia Mariscal a la performance Ocells-textos-onades que s’estrena el gener 2020 al Teatre Lliure.
 
-A més d’aquests projectes interdisciplinaris també treballo en el meu projecte personal mesclant vibràfon i electrònica, formo part del col·lectiu europeu de música electrònica Worran, del duet d'improvisació lliure Iklo i de la brass band de carrer Microbrass.
+A més d’aquests projectes interdisciplinaris també treballo en el meu projecte personal mesclant vibràfon i electrònica, formo part del col·lectiu europeu de música electrònica Worran, del duet d'improvisació lliure Iklo i de la brass band Microbrass.
 
 Escolta i posa’t en contacte si et ve de gust.
