@@ -52,7 +52,8 @@ module.exports = {
                     {
                         loader: "markdown-loader",
                         options: {
-                            /* your options here */
+							breaks: true,
+							gfm: true
                         }
                     }
                 ]
