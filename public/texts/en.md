@@ -1,9 +1,9 @@
-Hi!,
+Hi,
 
-Em dic Joan, tinc 33 anys i em dedico a la música. Treballo principalment dins les arts escèniques, escrivint música per espectacles de circ, teatre o dansa. He col·laborat amb Animal Religion, Los Galindos, Circ Vermut, Cia. Mov-i-ments i Cia. Pscioproject, i he actuat al festival Temporada Alta, al Mercat de les Flors, al TNT i al C!CAF, entre d’altres.
+I'm Joan, I'm 34 and I spend my time doing music. I work primarily in performance arts, producing music for circus shows, theatre and dance. I have collaborated (and collaborate) with Animal Religion, Los Galindos, Circ Vermut, Cia. Mov-i-ments and Cia. Pscioproject, and I have performed in Temporada Alta festival, Mercat de les Flors, TNT and C!CAF, amongst others.
 
-Actualment estic produint dos espectacles amb Animal Religion, un per nens i nenes de 2 a 5 anys anomenat ...i les idees volen, i un segon a estrenar abril 2020 al TNC anomentat Ahir. Alhora col·laboro amb la Julia Mariscal a la performance Ocells-textos-onades que s’estrena el gener 2020 al Teatre Lliure.
+At this moment I'm producing two shows with Animal Religion, one for children aged 2 to 5 called ...and the ideas soar, and another one to be premiered in April 2020 in the National Catalan Theatre called Ahir (Yesterday). At the same time I collaborate with Julia Mariscal in the performance Ocells-textos-onades (Birds-texts-waves) that will premier in January 2020 in Barcelona's Teatre Lliure.
 
-A més d’aquests projectes interdisciplinaris també treballo en el meu projecte personal de vibràfon i electrònica, formo part del grup inter-europeu d’electrònica Worran i formo part del duet iklo.
+On top of this I work in my own project blending vibraphone with electronics, I produce music with the european electronic music collective Worran, and I belong to the free improvisation duet, Iklo.
 
-Escolta i posa’t en contacte si et ve de gust.
+Listen and feel free to contact if you feel like it.
