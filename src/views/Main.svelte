@@ -28,14 +28,26 @@
 	#text-container {
 		max-width: 537px;
 		min-width: 400px;
-		padding: 5px 0px 10px 50px;
+		padding: 5px 0px 10px 45px;
 	}
 	#tools-container{
+		max-width: 537px;
 		margin-left: 45px;
 	}
 	#tools-container div {
 		float: left;
 		padding: 5px;
+		padding-left: 0px;
+	}
+	.row {
+		width: 650px;
+	}
+	.mail {
+		margin-left: -5px;
+	}
+	.cv {
+		font-size: 15pt;
+    	margin-left: 3px;
 	}
 </style>
 
@@ -46,18 +58,18 @@
 </div>
 
 <div id="tools-container">
-    <div>Joan</div>
-    <div>
-        <a href="mailto:joancotros@gmail.com">
-            <img alt="mail" width="45" height="30" src="/resources/mail.png"/>
-        </a>
-    </div>
-    <div>
-        <a href="https://soundcloud.com/oanotos/sets">
-            <img alt="soundcloud" width="30" src="/resources/soundcloud.png"/>
-        </a>
-    </div>
-    <div>
-        <Link to="/curriculum">CV</Link>
-    </div>
+    <div class="row">Joan</div>
+	<div class="mail">
+		<a href="mailto:joancotros@gmail.com">
+			<img alt="mail" width="45" height="30" src="/resources/mail.png"/>
+		</a>
+	</div>
+	<div>
+		<a target="_blank" href="https://soundcloud.com/oanotos/sets">
+			<img alt="soundcloud" width="30" src="/resources/soundcloud.png"/>
+		</a>
+	</div>
+	<div class="cv">
+		<Link to="/curriculum">CV</Link>
+	</div>
 </div>
