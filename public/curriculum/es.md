@@ -7,21 +7,20 @@
 2018 - **In Private** (Cia. PsicoProject | Danza)
 2017 - **Fang** (Animal Religion | Circo)
 2017 - **Music for 1 Roue Cyr and 1 Batterie** (Florinda Fürst | Circo)
-2017 - **Assassines** **(Cia La flor innata | Teatro)
+2017 - **Assassines** (Cia La flor innata | Teatro) - producido con Miquel Esquerra
 2017 - **Údul** (Los Galindos | Circo)
-2017 - **Soñando Con** *(Danilo Facelli | Poesia)
+2017 - **Soñando Con** (Danilo Facelli | Poesia) - producido con Pol Jubany
 2016 - **Ni cap ni peus** (Circ Vermut | Circo)
 2015 - **Descansa amb en Pau** (Bertus Compañó | Teatro)
 2014 - **Glofussss!!!!** (Cia. Vainilla Lila | Teatro)
 2012 - **Some Parts of the back of beyond** (Emma-jane Martin | Danza)
 2011 - **1 circ de llibres** (Cia. Home Idea | Circo)
-**producido con Miquel Esquerra
-*producido con Pol Jubany
+
 
 #### Otros proyectos 
 2018-19 - **Worran** (aR+Lu+TT+Jo | Grupo de música electrónica)
 2018-19 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
-2017-19 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + yo | Dueto de impro)
+2016-19 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + yo | Dueto de impro)
 2013 - **[A shocking waste](https://soundcloud.com/oanotos/sets/a-shocking-waste-1)** (Joan Cot Ros | Album)
 2009-12 - **[Eric](https://soundcloud.com/benjamin-cerigo/eric-eric)** (Patch Ben and I	 | Jazz trio)
 2008 - **[No Standard](https://www.youtube.com/watch?v=i4ph25X7hR0)** (Poch, Kiko, Tavares y yo | Jazz quartet)
