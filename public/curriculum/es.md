@@ -27,7 +27,6 @@
 
 
 #### Encargos de composición
-2019 - **Cavalcada de Reis de BCN** (Ajuntament de Barcelona | Música)
 2013 - **Sant Jordi Style** (Laiteans | Arranjament-album)
 2011 - 	**Ball propi del Dragalió de Mataró** (Ajuntament de Mataró | Música)
 
