@@ -27,7 +27,6 @@
 
 
 #### Composition commissions
-2019 - **Cavalcada de Reis de BCN** (Barcelona City Hall | Música)
 2013 - **Sant Jordi Style** (Laiteans | Arrangement-album)
 2011 - 	**Dragalió de Mataró** (Mataró City Hall | Música)
 
