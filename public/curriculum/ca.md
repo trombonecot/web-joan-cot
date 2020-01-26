@@ -44,5 +44,5 @@
 
 
 #### Direcció
-2018-19 - **La Clika del Rusc** (Casa de la Música | Cantata infantil)
+2018-20 - **La Clika del Rusc** (Casa de la Música | Cantata infantil)
 2014-19 - **Banda Fugarolas** (Can Fugarolas | Banda musical)
