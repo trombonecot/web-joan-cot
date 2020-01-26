@@ -13,7 +13,7 @@
 2016 - **Ni cap ni peus** (Circ Vermut | Circ)
 2015 - **Descansa amb en Pau** (Bertus Compañó | Teatre)
 2014 - **Glofussss!!!!** (Cia. Vainilla Lila | Teatre)
-2012 - **Some Parts of the back of beyond** (Emma-jane Martin | Dansa)
+2012 - **Some Parts of the back of beyond** (Emma-Jane Martin | Dansa)
 2011 - **1 circ de llibres** (Cia. Home Idea | Circ)
 
 
@@ -27,6 +27,7 @@
 
 
 #### Encàrregs de composició
+2020 - **Estel** (Cavalcada de Barcelona)
 2013 - **Sant Jordi Style** (Laiteans | Arranjament-album)
 2011 - 	**Ball propi del Dragalió de Mataró** (Ajuntament de Mataró | Música)
 
