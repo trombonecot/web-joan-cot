@@ -1,16 +1,17 @@
 #### Artes escénicas
-2020 - **Ahir** (Animal Religion | Circo)
+2020 - **Ahir** ([Animal Religion](http://www.animalreligion.com/) | Circo)
 2020 - **Ocells-textos-Onades** (Julia Mariscal | Performance)
-2019 - **…i les idees volen** (Animal Religion | Circo)
+2019 - **…i les idees volen** ([Animal Religion](http://www.animalreligion.com/) | Circo)
 2019 - **Zoom** (Cia. Mov-i-ments	| Circo)
+2018 - **Nu** ([Animal Religion](http://www.animalreligion.com/) | Circo)
 2018 - **Qui cu qui què quina** (Cia. Nom Provisional | Circo)
 2018 - **In Private** (Cia. PsicoProject | Danza)
-2017 - **Fang** (Animal Religion | Circo)
+2017 - **Fang** ([Animal Religion](http://www.animalreligion.com/) | Circo)
 2017 - **Music for 1 Roue Cyr and 1 Batterie** (Florinda Fürst | Circo)
 2017 - **Assassines** (Cia La flor innata | Teatro) - producido con Miquel Esquerra
 2017 - **Údul** (Los Galindos | Circo)
 2017 - **Soñando Con** (Danilo Facelli | Poesia) - producido con Pol Jubany
-2016 - **Ni cap ni peus** (Circ Vermut | Circo)
+2016 - **Ni cap ni peus** ([Circ Vermut](http://www.circvermut.com/)) | Circo)
 2015 - **Descansa amb en Pau** (Bertus Compañó | Teatro)
 2014 - **Glofussss!!!!** (Cia. Vainilla Lila | Teatro)
 2012 - **Some Parts of the back of beyond** (Emma-Jane Martin | Danza)
@@ -18,7 +19,7 @@
 
 
 #### Otros proyectos 
-2018-20 - **Worran** (aR+Lu+TT+Jo | Grupo de música electrónica)
+2018-20 - **[Worran] (https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Grupo de música electrónica)
 2018-20 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
 2016-19 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + yo | Dueto de impro)
 2013 - **[A shocking waste](https://soundcloud.com/oanotos/sets/a-shocking-waste-1)** (Joan Cot Ros | Album)
