@@ -1,6 +1,6 @@
 #### Arts escèniques
 2020 - **Ahir** ([Animal Religion](http://www.animalreligion.com/) | Circ)
-2020 - **Ocells-textos-Onades** (Julia Mariscal | Performance)
+2020 - **Ocells-textos-Onades** ([Julia Mariscal](http://www.juliamariscal.com/) | Performance)
 2019 - **…i les idees volen** ([Animal Religion](http://www.animalreligion.com/) | Circ)
 2019 - **Zoom** (Cia. Mov-i-ments	| Circ)
 2018 - **Nu** ([Animal Religion](http://www.animalreligion.com/) | Circ)
