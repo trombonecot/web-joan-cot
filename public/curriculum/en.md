@@ -1,16 +1,17 @@
 #### Performing arts
-2020 - **Ahir** (Animal Religion | Circus)
+2020 - **Ahir** ([Animal Religion](http://www.animalreligion.com/) | Circus)
 2020 - **Ocells-textos-Onades** (Julia Mariscal | Performance)
-2019 - **…i les idees volen** (Animal Religion | Circus)
+2019 - **…i les idees volen** ([Animal Religion](http://www.animalreligion.com/) | Circus)
 2019 - **Zoom** (Cia. Mov-i-ments	| Circus)
+2018 - **Nu** ([Animal Religion](http://www.animalreligion.com/) | Circus)
 2018 - **Qui cu qui què quina** (Cia. Nom Provisional | Circus)
 2018 - **In Private** (Cia. PsicoProject | Dance)
-2017 - **Fang** (Animal Religion | Circus)
+2017 - **Fang** ([Animal Religion](http://www.animalreligion.com/) | Circus)
 2017 - **Music for 1 Roue Cyr and 1 Batterie** (Florinda Fürst | Circus)
 2017 - **Assassines** (Cia La flor innata | Theatre) - produced with Miquel Esquerra
 2017 - **Údul** (Los Galindos | Circus)
 2017 - **Soñando Con** (Danilo Facelli | Poetry) - produced with Pol Jubany
-2016 - **Ni cap ni peus** (Circ Vermut | Circus)
+2016 - **Ni cap ni peus** ([Circ Vermut](http://www.circvermut.com/) | Circus)
 2015 - **Descansa amb en Pau** (Bertus Compañó | Theatre)
 2014 - **Glofussss!!!!** (Cia. Vainilla Lila | Theatre)
 2012 - **Some Parts of the back of beyond** (Emma-Jane Martin | Dance)
