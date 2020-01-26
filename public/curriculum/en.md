@@ -13,7 +13,7 @@
 2016 - **Ni cap ni peus** (Circ Vermut | Circus)
 2015 - **Descansa amb en Pau** (Bertus Compañó | Theatre)
 2014 - **Glofussss!!!!** (Cia. Vainilla Lila | Theatre)
-2012 - **Some Parts of the back of beyond** (Emma-jane Martin | Dance)
+2012 - **Some Parts of the back of beyond** (Emma-Jane Martin | Dance)
 2011 - **1 circ de llibres** (Cia. Home Idea | Circus)
 
 
@@ -27,6 +27,7 @@
 
 
 #### Composition commissions
+2020 - **Estel** (Cavalcada de Barcelona)
 2013 - **Sant Jordi Style** (Laiteans | Arrangement-album)
 2011 - 	**Dragalió de Mataró** (Mataró City Hall | Música)
 
@@ -43,5 +44,5 @@
 
 
 #### Conducting
-2018-19 - **La Clika del Rusc** (Casa de la Música | Children’s choir)
+2018-20 - **La Clika del Rusc** (Casa de la Música | Children’s choir)
 2014-19 - **Banda Fugarolas** (Can Fugarolas | Band)
