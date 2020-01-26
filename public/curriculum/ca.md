@@ -1,11 +1,12 @@
 #### Arts escèniques
-2020 - **Ahir** (Animal Religion | Circ)
+2020 - **Ahir** ([Animal Religion](http://www.animalreligion.com/) | Circ)
 2020 - **Ocells-textos-Onades** (Julia Mariscal | Performance)
-2019 - **…i les idees volen** (Animal Religion | Circ)
+2019 - **…i les idees volen** ([Animal Religion](http://www.animalreligion.com/) | Circ)
 2019 - **Zoom** (Cia. Mov-i-ments	| Circ)
+2018 - **Nu** ([Animal Religion](http://www.animalreligion.com/) | Circ)
 2018 - **Qui cu qui què quina** (Cia. Nom Provisional | Circ)
 2018 - **In Private** (Cia. PsicoProject | Dansa)
-2017 - **Fang** (Animal Religion | Circ)
+2017 - **Fang** ([Animal Religion](http://www.animalreligion.com/) | Circ)
 2017 - **Music for 1 Roue Cyr and 1 Batterie** (Florinda Fürst | Circ)
 2017 - **Assassines** (Cia La flor innata | Teatre) - realitzat amb en Miquel Esquerra
 2017 - **Údul** (Los Galindos | Circ)
