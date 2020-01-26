@@ -19,7 +19,7 @@
 
 
 #### Otros proyectos 
-2018-20 - **[Worran] (https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Grupo de música electrónica)
+2018-20 - **[Worran](https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Grupo de música electrónica)
 2018-20 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
 2016-19 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + yo | Dueto de impro)
 2013 - **[A shocking waste](https://soundcloud.com/oanotos/sets/a-shocking-waste-1)** (Joan Cot Ros | Album)
