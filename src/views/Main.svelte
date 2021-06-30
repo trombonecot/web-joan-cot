@@ -58,7 +58,6 @@
 </div>
 
 <div id="tools-container">
-    <div class="row">Joan</div>
 	<div class="mail">
 		<a href="mailto:joancotros@gmail.com">
 			<img alt="mail" width="45" height="30" src="/resources/mail.png"/>
