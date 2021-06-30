@@ -1,9 +1,9 @@
-Buenas,
+Joan Cot Ros
 
-Me llamo Joan y me dedico a la música. Trabajo principalmente dentro de las artes escénicas, escribiendo música para espectáculos de circo, teatro o danza. He colaborado con Animal Religion, Los Galindos, Circ Vermut, Cia. Mov-i-ments y Cia. Pscioproject, y he actuado en el festival Temporada Alta, en el Mercat de les Flors, en el TNT y en el C!CAF, entre otros.
+Compositor, percusionista, director y productor musical interesado en el arte contemporaneo y la interdisciplinariedad. 
 
-Actualmente estoy produciendo dos espectáculos con Animal Religion, uno para niños y niñas de 2 a 5 años llamado ...y las ideas vuelan, y un segundo a estrenar en abril 2020 en el TNC llamado Ahir. A la vez colaboro con Julia Mariscal en la performance Ocells-textos-onades que se estrena en enero 2020 en el Teatre Lliure.
+Licenciado en composición por la University College Falmouth (incorporating Dartington College of Arts) en UK, donde se formó en composición clássica-contemporanea y en improvisación libre. Ha escrito música para formaciones contemporáneas, de jazz, música para proyectos de circo, dansa, teatro, literatura, poesia, música para cortometrajes y largometrajes y anuncios. Actualmente su música se desarrolla principalmente dentro del campo de la electrónica experimental.
 
-Asimismo también trabajo en mi proyecto personal mezclando vibráfono y la electrónica, formo parte del colectivo europeo de música electrónica Worran, del dueto de improvisación libre Iklo y de la brass band Microbrass.
+Ha trabajado con Animal Religion, Los Galindos, Circ Vermut, Julia Mariscal, Maria Garriga, Cia. Psicoproject, Cia. Nom Provisional, Cia. Mov-i-ments, entre otros y ha actuado en festivales y teatros como TNC, Temporada Alta, Mercat de les Flors, Teatre Lliure, Teatros del Canal, Festival Terrassa Noves Tendències i C!CAF, entre otros.
 
-Escucha y si te apetece ponte en contacto.
+Actualmente compagina proyectos propios con la escritura de la música para el espectaculo de danza Exabrupte de Maria Garriga, creaciones con el grupo europeo d de electrónica Worran y improvisación libre con el dueto Iklo.
