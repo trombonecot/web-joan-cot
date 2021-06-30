@@ -1,4 +1,4 @@
-Joan Cot Ros
+**Joan Cot Ros**
 
 Compositor, percusionista, director i productor musical interessat en l’art contemporani i la interdisciplinarietat. 
 
