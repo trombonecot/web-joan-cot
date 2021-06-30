@@ -21,7 +21,7 @@
 
 
 #### Altres projectes 
-2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo |Electrònica + escultures)
+2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau |Electrònica + escultures)
 2021 - **[Homenatge a Narcís Perich](https://www.youtube.com/watch?v=FSU2bZFj9E0)** (Joan Cot Ros | Electrònica)
 2018-21 - **[Worran](https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Grup de música electrònica)
 2018-21 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
