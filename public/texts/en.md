@@ -1,4 +1,4 @@
-Joan Cot Ros
+**Joan Cot Ros**
 
 Composer, percussionist, conductor and producer interested in contemporary art and interdisciplinarity.
 
