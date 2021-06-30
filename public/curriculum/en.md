@@ -1,4 +1,6 @@
 #### Performing arts
+2021 - **Exabrupte** (Maria Garriga | Dance)
+2020 - **Fent Cua** (Urša Sekirnik and Joana Serra | Performance/Dance)
 2020 - **Ahir** ([Animal Religion](http://www.animalreligion.com/) | Circus)
 2020 - **Ocells-textos-Onades** ([Julia Mariscal](http://www.juliamariscal.com/) | Performance)
 2019 - **…i les idees volen** ([Animal Religion](http://www.animalreligion.com/) | Circus)
@@ -19,9 +21,9 @@
 
 
 #### Other projects 
-2018-20 - **[Worran](https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Electronic music ensemble)
-2018-20 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
-2016-19 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + I | Impro duet)
+2018-21 - **[Worran](https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Electronic music ensemble)
+2018-21 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
+2016-21 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + I | Impro duet)
 2013 - **[A shocking waste](https://soundcloud.com/oanotos/sets/a-shocking-waste-1)** (Joan Cot Ros | Album)
 2009-12 - **[Eric](https://soundcloud.com/benjamin-cerigo/eric-eric)** (Patch Ben and I	 | Jazz trio)
 2008 - **[No Standard](https://www.youtube.com/watch?v=i4ph25X7hR0)** (Poch, Kiko, Tavares and I | Jazz quartet)
@@ -45,5 +47,5 @@
 
 
 #### Conducting
-2018-20 - **La Clika del Rusc** (Casa de la Música | Children’s choir)
+2018-21 - **La Clika del Rusc** (Casa de la Música | Children’s choir)
 2014-19 - **Banda Fugarolas** (Can Fugarolas | Band)
