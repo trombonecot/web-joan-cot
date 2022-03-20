@@ -1,4 +1,6 @@
 #### Artes escénicas
+2022 - **Chakai** (Marta Dalmau | Danza)
+2022 - **Solo** (Roi Borrallas | Circo) - Espacio sonoro, luz y mirada externa
 2021 - **Exabrupte** (Maria Garriga | Danza)
 2020 - **Fent Cua** (Urša Sekirnik y Joana Serra | Performance/Danza)
 2020 - **Ahir** ([Animal Religion](http://www.animalreligion.com/) | Circo)
