@@ -1,6 +1,6 @@
 #### Performing arts
-2022 - **Chakai** (Marta Dalmau | Dansa)
-2022 - **Solo** (Roi Borrallas | Circ) - Sound and light design
+2022 - **Chakai** (Marta Dalmau | Dance)
+2022 - **Solo** (Roi Borrallas | Circus) - Sound and light design
 2021 - **Exabrupte** (Maria Garriga | Dance)
 2020 - **Fent Cua** (Urša Sekirnik and Joana Serra | Performance/Dance)
 2020 - **Ahir** ([Animal Religion](http://www.animalreligion.com/) | Circus)
@@ -51,5 +51,5 @@
 
 
 #### Conducting
-2018-21 - **La Clika del Rusc** (Casa de la Música | Children’s choir)
+2018-22 - **La Clika del Rusc** (Casa de la Música | Children’s choir)
 2014-19 - **Banda Fugarolas** (Can Fugarolas | Band)
