@@ -1,4 +1,6 @@
 #### Performing arts
+2022 - **Chakai** (Marta Dalmau | Dansa)
+2022 - **Solo** (Roi Borrallas | Circ) - Sound and light design
 2021 - **Exabrupte** (Maria Garriga | Dance)
 2020 - **Fent Cua** (Urša Sekirnik and Joana Serra | Performance/Dance)
 2020 - **Ahir** ([Animal Religion](http://www.animalreligion.com/) | Circus)
