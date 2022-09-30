@@ -1,4 +1,5 @@
 #### Arts escèniques
+2022 - **TSUNAMI or something's gonna happen tonight** (Carlota Grau | Noves dramatúrgies) - amb Pau Matas
 2022 - **Chakai** (Marta Dalmau | Dansa)
 2022 - **Solo** (Roi Borrallas | Circ) - Espai sonor, llum i ull extern
 2021 - **Exabrupte** (Maria Garriga | Dansa)
@@ -12,9 +13,9 @@
 2018 - **In Private** (Cia. PsicoProject | Dansa)
 2017 - **Fang** ([Animal Religion](http://www.animalreligion.com/) | Circ)
 2017 - **Music for 1 Roue Cyr and 1 Batterie** (Florinda Fürst | Circ)
-2017 - **Assassines** (Cia La flor innata | Teatre) - realitzat amb en Miquel Esquerra
+2017 - **Assassines** (Cia La flor innata | Teatre) - amb Miquel Esquerra
 2017 - **Údul** (Los Galindos | Circ)
-2017 - **Soñando Con** (Danilo Facelli | Poesia) - realitzat amb en Pol Jubany
+2017 - **Soñando Con** (Danilo Facelli | Poesia) - amb Pol Jubany
 2016 - **Ni cap ni peus** ([Circ Vermut](http://www.circvermut.com/) | Circ)
 2015 - **Descansa amb en Pau** (Bertus Compañó | Teatre)
 2014 - **Glofussss!!!!** (Cia. Vainilla Lila | Teatre)
