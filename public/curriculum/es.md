@@ -45,7 +45,7 @@
 2016 - **[How to disappear](https://vimeo.com/173626075)** (Toc Toc produccions | Anuncio)
 2016 - **[Tallers de la Titi](https://vimeo.com/151167877)** (Jordi Aliberas | Anuncio)
 2015 - **Pollo a la mandarina** (Subata producciones | Cortometraje)
-2014 - **[9Natrualcuina](https://vimeo.com/96826237)** (Subata producciones | Anuncio)
+2014 - **[9Naturalcuina](https://vimeo.com/96826237)** (Subata producciones | Anuncio)
 2014 - **Soneto Nocturno** (Processos Creatius | Largometraje)
 2014 - **[Can Fugarolas](https://vimeo.com/80737027)** (Can Fugarolas | Anuncio)
 2013 - **[Efecte Ekilibrium](https://vimeo.com/64945264)** (Subata producciones | Cortometraje)
