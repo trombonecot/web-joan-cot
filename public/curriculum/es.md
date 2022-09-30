@@ -1,4 +1,5 @@
 #### Artes escénicas
+2022 - **TSUNAMI or something's gonna happen tonight** (Carlota Grau | Nuevas dramaturgias) - con Pau Matas
 2022 - **Chakai** (Marta Dalmau | Danza)
 2022 - **Solo** (Roi Borrallas | Circo) - Espacio sonoro, luz y mirada externa
 2021 - **Exabrupte** (Maria Garriga | Danza)
