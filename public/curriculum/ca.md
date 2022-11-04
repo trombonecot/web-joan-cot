@@ -35,7 +35,7 @@
 2018-21 - **[Worran](https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Grup de música electrònica)
 2018-22 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
 2016-21 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + jo | Duet de impro)
-2009-12 - **[Eric](https://soundcloud.com/benjamin-cerigo/eric-eric)** (Patch Ben and I	 | Jazz trio)
+2009-12 - **[Eric](https://soundcloud.com/benjamin-cerigo/eric-eric)** (Patch Ben i jo	 | Jazz trio)
 2008 - **[No Standard](https://www.youtube.com/watch?v=i4ph25X7hR0)** (Poch, Kiko, Tavares i jo | Jazz quartet)
 
 
