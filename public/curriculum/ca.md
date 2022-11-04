@@ -24,10 +24,11 @@
 
 
 #### Altres projectes 
-2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau |Electrònica + escultures)
+2022 - **[NARRO] (https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros | Album)
+2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau | Electrònica + escultures)
 2021 - **[Homenatge a Narcís Perich](https://www.youtube.com/watch?v=FSU2bZFj9E0)** (Joan Cot Ros | Electrònica)
 2018-21 - **[Worran](https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Grup de música electrònica)
-2018-21 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
+2018-22 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
 2016-21 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + jo | Duet de impro)
 2013 - **[A shocking waste](https://soundcloud.com/oanotos/sets/a-shocking-waste-1)** (Joan Cot Ros | Album)
 2009-12 - **[Eric](https://soundcloud.com/benjamin-cerigo/eric-eric)** (Patch Ben and I	 | Jazz trio)
@@ -52,5 +53,5 @@
 
 
 #### Direcció
-2018-22 - **La Clika del Rusc** (Casa de la Música | Cantata infantil)
+2018-23 - **La Clika del Rusc** (Casa de la Música | Cantata infantil)
 2014-19 - **Banda Fugarolas** (Can Fugarolas | Banda musical)
