@@ -24,8 +24,8 @@
 
 
 #### Other projects
-2022 - **[NARRO] (https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros | Album)
-2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau |Electronic + sound esculptures)
+2022 - **[NARRO](https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros | Album)
+2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau | Electronic + sound esculptures)
 2021 - **[Homenatge a Narcís Perich](https://www.youtube.com/watch?v=FSU2bZFj9E0)** (Joan Cot Ros | Electronic)
 2018-21 - **[Worran](https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Electronic music ensemble)
 2018-22 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
