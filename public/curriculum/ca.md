@@ -1,4 +1,5 @@
 #### Arts escèniques
+2023
 2022 - **CASA NOSTRA** (SLMFV | Dansa) - Suport tècnic i artístic a l'espai sonor
 2022 - **TSUNAMI or something's gonna happen tonight** (Carlota Grau | Noves dramatúrgies) - amb Pau Matas
 2022 - **Chakai** (Marta Dalmau | Dansa)
