@@ -1,4 +1,5 @@
 #### Arts escèniques
+2022 - **CASA NOSTRA** (SLMFV | Dansa) - Suport tècnic i artístic a l'espai sonor
 2022 - **TSUNAMI or something's gonna happen tonight** (Carlota Grau | Noves dramatúrgies) - amb Pau Matas
 2022 - **Chakai** (Marta Dalmau | Dansa)
 2022 - **Solo** (Roi Borrallas | Circ) - Espai sonor, llum i ull extern
@@ -32,8 +33,8 @@
 #### Altres projectes 
 2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau | Electrònica + escultures)
 2021 - **[Homenatge a Narcís Perich](https://www.youtube.com/watch?v=FSU2bZFj9E0)** (Joan Cot Ros | Electrònica)
-2018-21 - **[Worran](https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Grup de música electrònica)
 2018-22 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
+2018-21 - **[Worran](https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Grup de música electrònica)
 2016-21 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + jo | Duet de impro)
 2009-12 - **[Eric](https://soundcloud.com/benjamin-cerigo/eric-eric)** (Patch Ben i jo	 | Jazz trio)
 2008 - **[No Standard](https://www.youtube.com/watch?v=i4ph25X7hR0)** (Poch, Kiko, Tavares i jo | Jazz quartet)
