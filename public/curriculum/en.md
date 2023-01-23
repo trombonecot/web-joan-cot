@@ -1,5 +1,5 @@
 #### Performing arts
-2022 - **CASA NOSTRA** (SLMFV | Dansa) - Technical and artistic suport for the sound design
+2022 - **CASA NOSTRA** ([SLMFV](https://www.silosmartesfueranviernes.com/casa-nostra/) | Dansa) - Technical and artistic suport for the sound design
 2022 - **TSUNAMI or something's gonna happen tonight** (Carlota Grau | New dramaturgies) - with Pau Matas
 2022 - **Chakai** (Marta Dalmau | Dance)
 2022 - **Solo** (Roi Borrallas | Circus) - Sound and light design
