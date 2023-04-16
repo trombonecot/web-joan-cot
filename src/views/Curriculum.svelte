@@ -36,7 +36,7 @@
         font-size: 11pt;
     }
     .close {
-        left: 660px;
+        left: 722px;
         top: 20px;
         position: relative;
         font-size: 20px;
