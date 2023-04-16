@@ -1,7 +1,7 @@
 #### Arts escèniques
 
-2023 - **Idiòfona** ([Joan Català](https://www.joancatala.pro/es/idiofona-es/) | Dansa)
-2023 - **Ramat Simfònic** ([Moon Ribas & Quim Giron](https://www.moonribasquimgiron.com/ramat-simf%C3%B2nic) | Dansa i Circ)
+2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Dansa)
+2023 - **[Ramat Simfònic](https://www.moonribasquimgiron.com/ramat-simf%C3%B2nic)** ([Moon Ribas & Quim Giron](https://www.moonribasquimgiron.com) | Dansa i Circ)
 2022 - **CASA NOSTRA** ([SLMFV](https://www.silosmartesfueranviernes.com/casa-nostra/) | Dansa) - Suport tècnic i artístic a l'espai sonor
 2022 - **TSUNAMI or something's gonna happen tonight** (Carlota Grau | Noves dramatúrgies) - amb Pau Matas
 2022 - **Chakai** (Marta Dalmau | Dansa)
