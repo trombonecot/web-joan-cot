@@ -7,7 +7,7 @@
 2022 - **Chakai** (Marta Dalmau | Dance)
 2022 - **Solo** (Roi Borrallas | Circus) - Sound and light design
 2021 - **Exabrupte** (Maria Garriga | Dance)
-2020 - **Fent Cua** (Urša Sekirnik and Jou Serra | Performance/Dance)
+2020 - **Fent Cua** (Urša Sekirnik & Jou Serra | Performance/Dance)
 2020 - **Ahir** ([Animal Religion](http://www.animalreligion.com/) | Circus)
 2020 - **Ocells-textos-Onades** ([Julia Mariscal](http://www.juliamariscal.com/) | Performance)
 2019 - **…i les idees volen** ([Animal Religion](http://www.animalreligion.com/) | Circus)
