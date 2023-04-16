@@ -27,7 +27,7 @@
 
 <style>
 	#text-container {
-		max-width: 537px;
+		max-width: 660px;
 		min-width: 400px;
         padding: 5px 0px 10px 50px;
         overflow: scroll;
@@ -36,7 +36,7 @@
         font-size: 11pt;
     }
     .close {
-        left: 570px;
+        left: 660px;
         top: 20px;
         position: relative;
         font-size: 20px;
