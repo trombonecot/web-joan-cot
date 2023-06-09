@@ -32,7 +32,7 @@
         padding: 5px 0px 10px 50px;
         overflow: scroll;
         text-overflow: ellipsis;
-        height: 750px;
+        height: 812px;
         font-size: 11pt;
     }
     .close {
