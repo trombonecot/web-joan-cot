@@ -32,7 +32,7 @@
 		background-image: url('/resources/bg.jpg');
 		background-size: 100%;
 		background-repeat: no-repeat;
-		height: 768px;
+		height: 855px;
 		width: 1366px;
 		margin: 0 auto;
 		margin-top: 25px;
