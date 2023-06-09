@@ -5,7 +5,7 @@
 <style>
 	#languages {
 		float: right;
-		margin-right: 250px;
+		margin-right: 335px;
     	margin-top: 10px;
 	}
 	#languages span{
