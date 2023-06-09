@@ -5,11 +5,11 @@
 <style>
 	#languages {
 		float: right;
-		margin-right: 30px;
+		margin-right: 250px;
     	margin-top: 10px;
 	}
 	#languages span{
-		color: white;
+		color: black;
 		padding-right: 20px;
         cursor: pointer;
 	}
