@@ -2,23 +2,23 @@
 
 2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Danza)
 2023 - **[Ramat Simfònic](https://www.moonribasquimgiron.com/ramat-simf%C3%B2nic)** ([Moon Ribas & Quim Giron](https://www.moonribasquimgiron.com) | Danza y Circo)
-2022 - **CASA NOSTRA** ([SLMFV](https://www.silosmartesfueranviernes.com/casa-nostra/) | Danza) - Soporte técnico i artístico al espacio sonoro
+2022 - **[CASA NOSTRA](https://www.silosmartesfueranviernes.com/casa-nostra/)** (SLMFV | Danza) - Soporte técnico i artístico al espacio sonoro
 2022 - **TSUNAMI or something's gonna happen tonight** (Carlota Grau | Nuevas dramaturgias) - con Pau Matas
-2022 - **Chakai** (Marta Dalmau | Danza)
+2022 - **[Chakai](https://www.dansinvitro.com/chakai)** (Marta Dalmau | Danza)
 2022 - **Solo** (Roi Borrallas | Circo) - Espacio sonoro, luz y mirada externa
 2021 - **Exabrupte** (Maria Garriga | Danza)
 2020 - **Fent Cua** (Urša Sekirnik & Jou Serra | Performance/Danza)
-2020 - **Ahir** ([Animal Religion](http://www.animalreligion.com/) | Circo)
+2020 - **[Ayer](https://www.animalreligion.com/copia-de-ahir)** ([Animal Religion](http://www.animalreligion.com/) | Circo)
 2020 - **Ocells-textos-Onades** ([Julia Mariscal](http://www.juliamariscal.com/) | Performance)
-2019 - **…i les idees volen** ([Animal Religion](http://www.animalreligion.com/) | Circo)
+2019 - **[…i les idees volen](https://www.animalreligion.com/ilesideesvolen)** ([Animal Religion](http://www.animalreligion.com/) | Circo)
 2019 - **Zoom** (Cia. Mov-i-ments	| Circo)
-2018 - **Nu** ([Animal Religion](http://www.animalreligion.com/) | Circo)
+2018 - **[Nu](https://www.animalreligion.com/nu)** ([Animal Religion](http://www.animalreligion.com/) | Circo)
 2018 - **Qui cu qui què quina** (Cia. Nom Provisional | Circo)
 2018 - **In Private** (Cia. PsicoProject | Danza)
-2017 - **Fang** ([Animal Religion](http://www.animalreligion.com/) | Circo)
+2017 - **[Fang](https://www.animalreligion.com/fang)** ([Animal Religion](http://www.animalreligion.com/) | Circo)
 2017 - **Music for 1 Roue Cyr and 1 Batterie** (Florinda Fürst | Circo)
 2017 - **Assassines** (Cia La flor innata | Teatro) - producido con Miquel Esquerra
-2017 - **Údul** (Los Galindos | Circo)
+2017 - **[Údul](https://losgalindos.net/es/espectacle/udul/)** (Los Galindos | Circo)
 2017 - **Soñando Con** (Danilo Facelli | Poesia) - producido con Pol Jubany
 2016 - **Ni cap ni peus** ([Circ Vermut](http://www.circvermut.com/)) | Circo)
 2015 - **Descansa amb en Pau** (Bertus Compañó | Teatro)
