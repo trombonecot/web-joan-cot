@@ -11,7 +11,7 @@
 2020 - **[Ahir](https://www.animalreligion.com/ahir)** ([Animal Religion](http://www.animalreligion.com/) | Circ)
 2020 - **Ocells-textos-Onades** ([Julia Mariscal](http://www.juliamariscal.com/) | Performance)
 2019 - **[…i les idees volen](https://www.animalreligion.com/ilesideesvolen)** ([Animal Religion](http://www.animalreligion.com/) | Circ)
-2019 - **Zoom** (Cia. Mov-i-ments	| Circ)
+2019 - **[Zoom](https://www.ciamoviments.com/zoom)** ([Cia. Mov-i-ments](https://www.ciamoviments.com/)	| Circ)
 2018 - **[Nu](https://www.animalreligion.com/nu)** ([Animal Religion](http://www.animalreligion.com/) | Circ)
 2018 - **Qui cu qui què quina** (Cia. Nom Provisional | Circ)
 2018 - **In Private** (Cia. PsicoProject | Dansa)
