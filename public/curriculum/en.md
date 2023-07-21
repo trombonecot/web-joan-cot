@@ -1,5 +1,6 @@
 #### Performing arts
 
+2023 - **[Corpus](https://www.museunacional.cat/en/activities/corpus-grec-festival-2023)** (Irene Vicente Salas | Performance)
 2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Dance)
 2023 - **[Ramat Simfònic](https://www.moonribasquimgiron.com/ramat-simf%C3%B2nic)** ([Moon Ribas & Quim Giron](https://www.moonribasquimgiron.com) | Dance and Circus)
 2022 - **[CASA NOSTRA](https://www.silosmartesfueranviernes.com/casa-nostra/)** (SLMFV | Dansa) - Technical and artistic suport for the sound design
