@@ -29,7 +29,7 @@
 2011 - **1 circ de llibres** (Cia. Home Idea | Circus)
 
 
-#### Diseño de iluminación
+#### Light design
 2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
 2022 - **Solo** (Roi Borrallas | Circus)
 
