@@ -1,4 +1,4 @@
-#### Performing arts
+#### Sound and music (Performing arts)
 
 2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
 2023 - **[Corpus](https://www.museunacional.cat/en/activities/corpus-grec-festival-2023)** (Irene Vicente Salas | Temporary performance exhibition)
@@ -7,7 +7,7 @@
 2022 - **[CASA NOSTRA](https://www.silosmartesfueranviernes.com/casa-nostra/)** (SLMFV | Dansa) - Technical and artistic suport for the sound design
 2022 - **TSUNAMI or something's gonna happen tonight** (Carlota Grau | New dramaturgies) - with Pau Matas
 2022 - **[Chakai](https://www.dansinvitro.com/chakai)** (Marta Dalmau | Dance)
-2022 - **Solo** (Roi Borrallas | Circus) - Sound and light design
+2022 - **Solo** (Roi Borrallas | Circus)
 2021 - **Exabrupte** (Maria Garriga | Dance)
 2020 - **Fent Cua** (Urša Sekirnik & Jou Serra | Performance/Dance)
 2020 - **[Yesterday](https://www.animalreligion.com/copia-de-ahir-1)** ([Animal Religion](http://www.animalreligion.com/) | Circus)
@@ -27,6 +27,11 @@
 2014 - **Glofussss!!!!** (Cia. Vainilla Lila | Theatre)
 2012 - **Some Parts of the back of beyond** (Emma-Jane Martin | Dance)
 2011 - **1 circ de llibres** (Cia. Home Idea | Circus)
+
+
+#### Diseño de iluminación
+2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
+2022 - **Solo** (Roi Borrallas | Circus)
 
 
 #### Albums
