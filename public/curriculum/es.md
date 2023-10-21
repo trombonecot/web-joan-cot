@@ -1,4 +1,4 @@
-#### Artes escénicas
+#### Espacio sonoro y Música (Artes escénicas)
 
 2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas y Quim Giron](https://www.moonribasquimgiron.com/) | Danza y Circo)
 2023 - **[Corpus](https://www.museunacional.cat/es/actividades/corpus-festival-grec-2023)** (Irene Vicente Salas | Exposición performática temporal)
@@ -27,6 +27,11 @@
 2014 - **Glofussss!!!!** (Cia. Vainilla Lila | Teatro)
 2012 - **Some Parts of the back of beyond** (Emma-Jane Martin | Danza)
 2011 - **1 circ de llibres** (Cia. Home Idea | Circo)
+
+
+#### Diseño de iluminación
+2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas y Quim Giron](https://www.moonribasquimgiron.com/) | Danza y Circo)
+2022 - **Solo** (Roi Borrallas | Circo) - Espacio sonoro, luz y mirada externa
 
 
 #### Albums
