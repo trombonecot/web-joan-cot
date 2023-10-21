@@ -7,7 +7,7 @@
 2022 - **[CASA NOSTRA](https://www.silosmartesfueranviernes.com/casa-nostra/)** (SLMFV | Danza) - Soporte técnico i artístico al espacio sonoro
 2022 - **TSUNAMI or something's gonna happen tonight** (Carlota Grau | Nuevas dramaturgias) - con Pau Matas
 2022 - **[Chakai](https://www.dansinvitro.com/chakai)** (Marta Dalmau | Danza)
-2022 - **Solo** (Roi Borrallas | Circo) - Espacio sonoro, luz y mirada externa
+2022 - **Solo** (Roi Borrallas | Circo) - Espacio sonoro y mirada externa
 2021 - **Exabrupte** (Maria Garriga | Danza)
 2020 - **Fent Cua** (Urša Sekirnik & Jou Serra | Performance/Danza)
 2020 - **[Ayer](https://www.animalreligion.com/copia-de-ahir)** ([Animal Religion](http://www.animalreligion.com/) | Circo)
