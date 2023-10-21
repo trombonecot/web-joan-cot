@@ -1,6 +1,6 @@
 #### Artes escénicas
 
-2023 - **[Sota Terrat](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas i Quim Giron](https://www.moonribasquimgiron.com/) | Danza y Circo)
+2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas i Quim Giron](https://www.moonribasquimgiron.com/) | Danza y Circo)
 2023 - **[Corpus](https://www.museunacional.cat/es/actividades/corpus-festival-grec-2023)** (Irene Vicente Salas | Exposición performática temporal)
 2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Circo)
 2023 - **[Ramat Simfònic](https://www.moonribasquimgiron.com/ramat-simf%C3%B2nic)** ([Moon Ribas & Quim Giron](https://www.moonribasquimgiron.com) | Danza y Circo)
