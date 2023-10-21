@@ -28,9 +28,11 @@
 2012 - **Some Parts of the back of beyond** (Emma-Jane Martin | Dansa)
 2011 - **1 circ de llibres** (Cia. Home Idea | Circ)
 
+
 #### Disseny d'il·luminació
 2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas i Quim Giron](https://www.moonribasquimgiron.com/) | Dansa i Circ)
 2022 - **Solo** (Roi Borrallas | Circ)
+
 
 #### Albums
 2022 - **[NARRO](https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros)
