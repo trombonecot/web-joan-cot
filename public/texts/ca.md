@@ -1,7 +1,7 @@
 **Joan Cot Ros**
 
-Compositor, percusionista, director i productor musical interessat en l’art contemporani i la interdisciplinarietat. 
+Compositor, productor i director musical interessat en l’art contemporani i la interdisciplinarietat. Treballa principalment en projectes d'arts escèniques i la seva música es desenvolupa dins el camp de l'electrònica experimental.
 
-Llicenciat en composició musical per la University College Falmouth (incorporating Dartington College of Arts) a UK, on es va formar en composició clàssica-contemporània i en improvisació lliure. Ha escrit obres per formacions contemporànies, de jazz, música per projectes interdisciplinaris (circ, dansa, teatre, literatura i poesia), música per curtmetratges, llargmetratges i anuncis. La seva música es desenvolupa dins el camp de l'electrònica experimental. 
+Llicenciat en composició musical per la University College Falmouth (incorporating Dartington College of Arts) a UK, on es va formar en composició clàssica-contemporània i en improvisació lliure. Ha escrit obres per formacions contemporànies, de jazz, música per projectes interdisciplinaris (circ, dansa, teatre, literatura i poesia), música per curtmetratges, llargmetratges i anuncis. 
 
-Ha treballat amb artistes de circ, dansa i teatre com Animal Religion, Joan Català, Los Galindos, SLMFV, Lucas Condró, Carlota Grau i Julia Mariscal entre d’altres. Ha actuat a teatres i festivals com TNC, Mercat de les Flors, Teatre Lliure, Temporada Alta, Festival Grec, Festival TNT, Teatros del Canal, Festival Mirada (Brasil), Edinburgh Children's Festival, Berlin Circus Festival o C!CAF (Dinamarca).
+Ha treballat amb artistes de circ, dansa i teatre com Animal Religion, Moon Ribas i Quim Giron, Joan Català, Los Galindos, SLMFV, Lucas Condró, Carlota Grau i Julia Mariscal entre d’altres. Ha actuat a teatres i festivals com TNC, Mercat de les Flors, Teatre Lliure, Temporada Alta, Festival Grec, Festival TNT, Teatros del Canal, Festival Mirada (Brasil), Edinburgh Children's Festival, Berlin Circus Festival o C!CAF (Dinamarca).
