@@ -29,11 +29,6 @@
 2011 - **1 circ de llibres** (Cia. Home Idea | Circus)
 
 
-#### Light design
-2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
-2022 - **Solo** (Roi Borrallas | Circus)
-
-
 #### Albums
 2022 - **[NARRO](https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros)
 2021 - **[Fugarolas Sessions](https://worran.bandcamp.com/album/fugarolas-sessions)** (Worran)
@@ -47,6 +42,11 @@
 2016-21 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + I | Impro duet)
 2009-12 - **[Eric](https://soundcloud.com/benjamin-cerigo/eric-eric)** (Patch Ben and I	 | Jazz trio)
 2008 - **[No Standard](https://www.youtube.com/watch?v=i4ph25X7hR0)** (Poch, Kiko, Tavares and I | Jazz quartet)
+
+
+#### Light design
+2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
+2022 - **Solo** (Roi Borrallas | Circus)
 
 
 #### Composition commissions
