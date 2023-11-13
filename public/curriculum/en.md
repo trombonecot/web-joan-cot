@@ -45,6 +45,7 @@
 
 
 #### Light design
+2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez and Laura Alcalà | Dance) - Development of software for light and music integration
 2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
 2022 - **Solo** (Roi Borrallas | Circus)
 
