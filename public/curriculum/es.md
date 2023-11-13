@@ -46,6 +46,7 @@
 
 
 #### Diseño de iluminación
+2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez y Laura Alcalà | Danza) - Desarrollo de software por la integración de luz y sonido
 2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas y Quim Giron](https://www.moonribasquimgiron.com/) | Danza y Circo)
 2022 - **Solo** (Roi Borrallas | Circo) - Espacio sonoro, luz y mirada externa
 
