@@ -46,6 +46,7 @@
 
 
 #### Disseny d'il·luminació
+2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez i Laura Alcalà | Dansa) - Ajuda a la programació de llums
 2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas i Quim Giron](https://www.moonribasquimgiron.com/) | Dansa i Circ)
 2022 - **Solo** (Roi Borrallas | Circ)
 
