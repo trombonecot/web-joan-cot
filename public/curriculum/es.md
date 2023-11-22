@@ -69,6 +69,6 @@
 
 
 #### Dirección
-2018-23 - **[La Clika](https://www.laclika.cat/)** (Cases de la Música | Cantata infantil)
+2018-24 - **[La Clika](https://www.laclika.cat/)** (Cases de la Música | Cantata infantil)
 2014-19 - **Banda Fugarolas** (Can Fugarolas | Banda musical)
 
