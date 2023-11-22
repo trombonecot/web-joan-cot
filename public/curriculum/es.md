@@ -1,5 +1,6 @@
 #### Espacio sonoro y Música (Artes escénicas)
 
+2023 - **Finestres d'una habitació (WIP)** (Martí Soler | Circo) - con Fèlix Cucurull y Pol Jubany
 2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas y Quim Giron](https://www.moonribasquimgiron.com/) | Danza y Circo)
 2023 - **[Corpus](https://www.museunacional.cat/es/actividades/corpus-festival-grec-2023)** (Irene Vicente Salas | Exposición performática temporal)
 2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Circo)
@@ -19,9 +20,9 @@
 2018 - **In Private** (Cia. PsicoProject | Danza)
 2017 - **[Fang](https://www.animalreligion.com/fang)** ([Animal Religion](http://www.animalreligion.com/) | Circo)
 2017 - **Music for 1 Roue Cyr and 1 Batterie** (Florinda Fürst | Circo)
-2017 - **Assassines** (Cia La flor innata | Teatro) - producido con Miquel Esquerra
+2017 - **Assassines** (Cia La flor innata | Teatro) - con Miquel Esquerra
 2017 - **[Údul](https://losgalindos.net/es/espectacle/udul/)** (Los Galindos | Circo)
-2017 - **Soñando Con** (Danilo Facelli | Poesia) - producido con Pol Jubany
+2017 - **Soñando Con** (Danilo Facelli | Poesia) - con Pol Jubany
 2016 - **Ni cap ni peus** ([Circ Vermut](http://www.circvermut.com/)) | Circo)
 2015 - **Descansa amb en Pau** (Bertus Compañó | Teatro)
 2014 - **Glofussss!!!!** (Cia. Vainilla Lila | Teatro)
