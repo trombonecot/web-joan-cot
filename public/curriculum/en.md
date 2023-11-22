@@ -1,5 +1,6 @@
 #### Sound and music (Performing arts)
 
+2023 - **Finestres d'una habitació (WIP)** (Martí Soler | Circ) - with Fèlix Cucurull and Pol Jubany
 2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
 2023 - **[Corpus](https://www.museunacional.cat/en/activities/corpus-grec-festival-2023)** (Irene Vicente Salas | Temporary performance exhibition)
 2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Circus)
