@@ -1,5 +1,6 @@
 #### Sound and music (Performing arts)
 
+2024 - **Si neva no venim** - Collective process of experimentation between dance and sound
 2024 - **Finestres d'una habitació** (Martí Soler | Circus) - with Fèlix Cucurull and Pol Jubany
 2024 - **TO COPY** ([Animal Religion](http://www.animalreligion.com/) | Circus)
 2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
