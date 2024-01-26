@@ -1,5 +1,6 @@
 #### Espacio sonoro y Música (Artes escénicas)
 
+2024 - **Si neva no venim** - Proceso colectivo de experimentación y investigación entre danza y sonido
 2024 - **Finestres d'una habitació** (Martí Soler | Circo) - con Fèlix Cucurull y Pol Jubany
 2024 - **COPIAR** ([Animal Religion](http://www.animalreligion.com/) | Circo)
 2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas y Quim Giron](https://www.moonribasquimgiron.com/) | Danza y Circo)
