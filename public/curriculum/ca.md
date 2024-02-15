@@ -1,5 +1,6 @@
 #### Espai Sonor i Música (Arts escèniques)
 
+2024 - **Si neva no venim** - Procés col·lectiu d'experimentació i investigació entre dansa i soaaaa
 2024 - **Si neva no venim** - Procés col·lectiu d'experimentació i investigació entre dansa i so
 2024 - **Finestres d'una habitació** (Martí Soler | Circ) - amb Fèlix Cucurull i Pol Jubany
 2024 - **COPIAR** ([Animal Religion](http://www.animalreligion.com/) | Circ)
