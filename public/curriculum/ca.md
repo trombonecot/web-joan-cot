@@ -2,7 +2,7 @@
 
 2024 - **Si neva no venim** - Procés col·lectiu d'experimentació i investigació entre dansa i so
 2024 - **Finestres d'una habitació** (Martí Soler | Circ) - amb Fèlix Cucurull i Pol Jubany
-2024 - **[COPIAR](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circ)
+2024 - **[Copiar](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circ)
 2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas i Quim Giron](https://www.moonribasquimgiron.com/) | Dansa i Circ)
 2023 - **[Corpus](https://www.museunacional.cat/ca/activitats/corpus-festival-grec-2023)** (Irene Vicente Salas | Exposició performàtica temporal)
 2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Circ)
