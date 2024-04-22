@@ -1,10 +1,11 @@
 #### Sound and music (Performing arts)
 
+2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Temporary performance exhibition)
 2024 - **Si neva no venim** - Collective process of experimentation between dance and sound
-2024 - **Finestres d'una habitació** (Martí Soler | Circus) - with Fèlix Cucurull and Pol Jubany
+2024 - **Finestres** (Martí Soler | Circus) - with Fèlix Cucurull and Pol Jubany
 2024 - **[To copy](https://www.animalreligion.com/copia-de-copiar-cast)** ([Animal Religion](http://www.animalreligion.com/) | Circus)
 2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
-2023 - **[Corpus](https://www.museunacional.cat/en/activities/corpus-grec-festival-2023)** (Irene Vicente Salas | Temporary performance exhibition)
+2023 - **[Corpus - MNAC](https://www.museunacional.cat/en/activities/corpus-grec-festival-2023)** (Irene Vicente Salas | Temporary performance exhibition)
 2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Circus)
 2023 - **[Ramat Simfònic](https://www.moonribasquimgiron.com/ramat-simf%C3%B2nic)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com) | Dance and Circus)
 2022 - **[CASA NOSTRA](https://www.silosmartesfueranviernes.com/casa-nostra/)** (SLMFV | Dansa) - Technical and artistic suport for the sound design
