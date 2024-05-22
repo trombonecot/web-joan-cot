@@ -50,6 +50,8 @@
 
 
 #### Diseño de iluminación
+2024 - **[39è Festival Internacional de Poesia de Barcelona](https://www.palaumusica.cat/ca/39e-festival-internacional-de-poesia-de-barcelona_1314313)** (Aurora Bauzà y Pere Jou | Recital de poesia en el Palau de la Música Catalana) - Con Jou Serra
+2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Exposición performática temporal)
 2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez y Laura Alcalà | Danza) - Desarrollo de software por la integración de luz y sonido
 2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas y Quim Giron](https://www.moonribasquimgiron.com/) | Danza y Circo)
 2022 - **Solo** (Roi Borrallas | Circo) - Espacio sonoro, luz y mirada externa
