@@ -49,7 +49,7 @@
 
 
 #### Light design
-2024 - **[39è Festival Internacional de Poesia de Barcelona](https://www.palaumusica.cat/ca/39e-festival-internacional-de-poesia-de-barcelona_1314313)** (Aurora Bauzà and Pere Jou | Recital de poesia) - With Jou Serra
+2024 - **[39è Festival Internacional de Poesia de Barcelona](https://www.palaumusica.cat/ca/39e-festival-internacional-de-poesia-de-barcelona_1314313)** (Aurora Bauzà and Pere Jou | Poetry Recital at Palau de la Música Catalana) - With Jou Serra
 2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Temporary performance exhibition)
 2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez and Laura Alcalà | Dance) - Development of software for light and music integration
 2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
