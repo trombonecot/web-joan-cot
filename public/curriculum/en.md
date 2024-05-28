@@ -1,5 +1,5 @@
 
-#### Sound and music (Performing arts)
+#### Sound and music for Performing arts
 
 2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Temporary performance exhibition)
 2024 - **Si neva no venim** - Collective process of experimentation between dance and sound
@@ -34,10 +34,25 @@
 2011 - **1 circ de llibres** (Cia. Home Idea | Circus)
 
 
+#### Light design for Performing arts
+2024 - **[39è Festival Internacional de Poesia de Barcelona](https://www.palaumusica.cat/ca/39e-festival-internacional-de-poesia-de-barcelona_1314313)** (Aurora Bauzà and Pere Jou | Poetry Recital at Palau de la Música Catalana) - With Jou Serra
+2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Temporary performance exhibition)
+2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez and Laura Alcalà | Dance) - Development of software for light and music integration
+2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
+2022 - **Solo** (Roi Borrallas | Circus)
+
+
 #### Albums
 2022 - **[NARRO](https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros)
 2021 - **[Fugarolas Sessions](https://worran.bandcamp.com/album/fugarolas-sessions)** (Worran)
 2013 - **[A shocking waste](https://soundcloud.com/oanotos/sets/a-shocking-waste-1)** (Joan Cot Ros)
+
+
+#### Composition commissions
+2020 - **Estel** (Cavalcada de Barcelona)
+2013 - **Sant Jordi Style** (Laiteans | Arrangement-album)
+2011 - 	**Dragalió de Mataró** (Mataró City Hall | Música)
+
 
 #### Other projects
 2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau | Electronic + sound esculptures)
@@ -49,21 +64,7 @@
 2008 - **[No Standard](https://www.youtube.com/watch?v=i4ph25X7hR0)** (Poch, Kiko, Tavares and I | Jazz quartet)
 
 
-#### Light design
-2024 - **[39è Festival Internacional de Poesia de Barcelona](https://www.palaumusica.cat/ca/39e-festival-internacional-de-poesia-de-barcelona_1314313)** (Aurora Bauzà and Pere Jou | Poetry Recital at Palau de la Música Catalana) - With Jou Serra
-2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Temporary performance exhibition)
-2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez and Laura Alcalà | Dance) - Development of software for light and music integration
-2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
-2022 - **Solo** (Roi Borrallas | Circus)
-
-
-#### Composition commissions
-2020 - **Estel** (Cavalcada de Barcelona)
-2013 - **Sant Jordi Style** (Laiteans | Arrangement-album)
-2011 - 	**Dragalió de Mataró** (Mataró City Hall | Música)
-
-
-#### Audiovisual
+#### Music for Audiovisuals
 2017 - **A Legend** (Toc Toc produccions | Advertisement)
 2016 - **[How to disappear](https://vimeo.com/173626075)** (Toc Toc produccions | Advertisement)
 2016 - **[Tallers de la Titi](https://vimeo.com/151167877)** (Jordi Aliberas | Advertisement)
