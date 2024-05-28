@@ -1,4 +1,4 @@
-#### Espacio sonoro y Música (Artes escénicas)
+#### Espacio sonoro y Música para Artes escénicas
 
 2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Exposición performática temporal)
 2024 - **Si neva no venim** - Proceso colectivo de experimentación y investigación entre danza y sonido
@@ -33,10 +33,24 @@
 2011 - **1 circ de llibres** (Cia. Home Idea | Circo)
 
 
+#### Diseño de iluminación para Artes escénicas
+2024 - **[39è Festival Internacional de Poesia de Barcelona](https://www.palaumusica.cat/ca/39e-festival-internacional-de-poesia-de-barcelona_1314313)** (Aurora Bauzà y Pere Jou | Recital de poesia en el Palau de la Música Catalana) - Con Jou Serra
+2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Exposición performática temporal)
+2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez y Laura Alcalà | Danza) - Desarrollo de software por la integración de luz y sonido
+2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas y Quim Giron](https://www.moonribasquimgiron.com/) | Danza y Circo)
+2022 - **Solo** (Roi Borrallas | Circo) - Espacio sonoro, luz y mirada externa
+
+
 #### Albums
 2022 - **[NARRO](https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros)
 2021 - **[Fugarolas Sessions](https://worran.bandcamp.com/album/fugarolas-sessions)** (Worran)
 2013 - **[A shocking waste](https://soundcloud.com/oanotos/sets/a-shocking-waste-1)** (Joan Cot Ros)
+
+
+#### Encargos de composición
+2020 - **Estel** (Cavalcada de Barcelona)
+2013 - **Sant Jordi Style** (Laiteans | Arranjament-album)
+2011 - 	**Ball propi del Dragalió de Mataró** (Ajuntament de Mataró | Música)
 
 
 #### Otros proyectos 
@@ -47,20 +61,6 @@
 2016-21 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + yo | Dueto de impro)
 2009-12 - **[Eric](https://soundcloud.com/benjamin-cerigo/eric-eric)** (Patch Ben and I	 | Jazz trio)
 2008 - **[No Standard](https://www.youtube.com/watch?v=i4ph25X7hR0)** (Poch, Kiko, Tavares y yo | Jazz quartet)
-
-
-#### Diseño de iluminación
-2024 - **[39è Festival Internacional de Poesia de Barcelona](https://www.palaumusica.cat/ca/39e-festival-internacional-de-poesia-de-barcelona_1314313)** (Aurora Bauzà y Pere Jou | Recital de poesia en el Palau de la Música Catalana) - Con Jou Serra
-2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Exposición performática temporal)
-2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez y Laura Alcalà | Danza) - Desarrollo de software por la integración de luz y sonido
-2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas y Quim Giron](https://www.moonribasquimgiron.com/) | Danza y Circo)
-2022 - **Solo** (Roi Borrallas | Circo) - Espacio sonoro, luz y mirada externa
-
-
-#### Encargos de composición
-2020 - **Estel** (Cavalcada de Barcelona)
-2013 - **Sant Jordi Style** (Laiteans | Arranjament-album)
-2011 - 	**Ball propi del Dragalió de Mataró** (Ajuntament de Mataró | Música)
 
 
 #### Audiovisuales
