@@ -1,12 +1,13 @@
 
 #### Sound and music for Performing arts
 
-2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Temporary performance exhibition)
+2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Theatre)
+2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Temporary performance exhibition)
 2024 - **Si neva no venim** - Collective process of experimentation between dance and sound
 2024 - **Finestres** (Martí Soler | Circus) - with Fèlix Cucurull and Pol Jubany
 2024 - **[To copy](https://www.animalreligion.com/copia-de-copiar-cast)** ([Animal Religion](http://www.animalreligion.com/) | Circus)
 2023 - **[Sota Terra (Underland)](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com/) | Dance and Circus)
-2023 - **[Corpus - MNAC](https://www.museunacional.cat/en/activities/corpus-grec-festival-2023)** (Irene Vicente Salas | Temporary performance exhibition)
+2023 - **[Corpus - MNAC](https://www.museunacional.cat/en/activities/corpus-grec-festival-2023)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Temporary performance exhibition)
 2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Circus)
 2023 - **[Ramat Simfònic](https://www.moonribasquimgiron.com/ramat-simf%C3%B2nic)** ([Moon Ribas and Quim Giron](https://www.moonribasquimgiron.com) | Dance and Circus)
 2022 - **[CASA NOSTRA](https://www.silosmartesfueranviernes.com/casa-nostra/)** (SLMFV | Dansa) - Technical and artistic suport for the sound design
@@ -35,6 +36,7 @@
 
 
 #### Light design for Performing arts
+2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Theatre)
 2024 - **[39è Festival Internacional de Poesia de Barcelona](https://www.palaumusica.cat/ca/39e-festival-internacional-de-poesia-de-barcelona_1314313)** (Aurora Bauzà and Pere Jou | Poetry Recital at Palau de la Música Catalana) - With Jou Serra
 2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Temporary performance exhibition)
 2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez and Laura Alcalà | Dance) - Development of software for light and music integration
