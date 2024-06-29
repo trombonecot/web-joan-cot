@@ -1,5 +1,6 @@
 #### Espai Sonor i Música per Arts escèniques
 
+2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Teatre)
 2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Exposició performàtica temporal)
 2024 - **Si neva no venim** - Procés col·lectiu d'experimentació i investigació entre dansa i so
 2024 - **Finestres** (Martí Soler | Circ) - amb Fèlix Cucurull i Pol Jubany
@@ -34,6 +35,7 @@
 
 
 #### Disseny d'il·luminació per Arts escèniques
+2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Teatre)
 2024 - **[39è Festival Internacional de Poesia de Barcelona](https://www.palaumusica.cat/ca/39e-festival-internacional-de-poesia-de-barcelona_1314313)** (Aurora Bauzà i Pere Jou | Recital de poesia al Palau de la Música Catalana) - Amb Jou Serra
 2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Exposició performàtica temporal)
 2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez i Laura Alcalà | Dansa) - Desenvolupament de software per la integració de llums i música
