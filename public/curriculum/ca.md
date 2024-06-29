@@ -1,12 +1,12 @@
 #### Espai Sonor i Música per Arts escèniques
 
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Teatre)
-2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Exposició performàtica temporal)
+2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Exposició performàtica temporal)
 2024 - **Si neva no venim** - Procés col·lectiu d'experimentació i investigació entre dansa i so
 2024 - **Finestres** (Martí Soler | Circ) - amb Fèlix Cucurull i Pol Jubany
 2024 - **[Copiar](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circ)
 2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas i Quim Giron](https://www.moonribasquimgiron.com/) | Dansa i Circ)
-2023 - **[Corpus - MNAC](https://www.museunacional.cat/ca/activitats/corpus-festival-grec-2023)** (Irene Vicente Salas | Exposició performàtica temporal)
+2023 - **[Corpus - MNAC](https://www.museunacional.cat/ca/activitats/corpus-festival-grec-2023)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Exposició performàtica temporal)
 2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Circ)
 2023 - **[Ramat Simfònic](https://www.moonribasquimgiron.com/ramat-simf%C3%B2nic)** ([Moon Ribas i Quim Giron](https://www.moonribasquimgiron.com) | Dansa i Circ)
 2022 - **[CASA NOSTRA](https://www.silosmartesfueranviernes.com/casa-nostra/)** (SLMFV | Dansa) - Suport tècnic i artístic a l'espai sonor
