@@ -1,5 +1,6 @@
 #### Espai Sonor i Música per Arts escèniques
 
+2024 - **Pop** (Laura Alcalà & Irene Vicente Salas | Dansa)
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Teatre)
 2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Exposició performàtica temporal)
 2024 - **Si neva no venim** - Procés col·lectiu d'experimentació i investigació entre dansa i so
