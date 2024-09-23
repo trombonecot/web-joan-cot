@@ -6,4 +6,4 @@ Sóc en Joan i sóc compositor, productor i director musical interessat en l’a
 
 Formo part de la companyia de circ Animal Religion. He col·laborat en projectes d'artistes d'arts escèniques diverses com Joan Català, Los Galindos, SLMFV, Lucas Condró, Irene Vicente Salas, Roi Borrallas, Carlota Grau, Milagros Garcia, Aurora Bauzà i Pere Jou, Martí Soler, Circ Vermut i Laura Alcalà, entre d’altres. He actuat a teatres i festivals com TNC, Mercat de les Flors, Teatre Lliure, Temporada Alta, Festival Grec, Festival elPetit, Festival TNT, Teatros del Canal, Festival Mirada (Brasil), Edinburgh Children's Festival, Berlin Circus Festival o C!CAF (Dinamarca).
 
-Per qualsvol cosa, contacta'm clicant el link de sota.
+Pots consultar el meu CV complet o enviar-me un mail clicant els links de sota.
