@@ -1,6 +1,6 @@
 **Joan Cot Ros**
 
-Iep!
+Hola,
 
 Soy Joan y soy compositor, productor y director musical interesado en el arte contemporaneo y la interdisciplinariedad. Me licencié en composición en la University College Falmouth (incorporating Dartington College of Arts) en UK, donde me formé en composición clássica-contemporanea y en improvisación libre. He escrito música para formaciones contemporáneas, de jazz, música para proyectos de circo, danza, teatro, literatura, poesia, música para cortometrajes y largometrajes y anuncios. Trabajo principalmente en proyectos de artes escénicas y la música que me interesa esta dentro del campo de la electrónica experimental.
 
