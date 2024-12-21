@@ -1,6 +1,7 @@
 
 #### Sound and music for Performing arts
 
+2024 - **Natal** (Animal Religion | Circus)
 2024 - **[Infinite game](https://www.firatarrega.cat/fira/programa/en_2024/32/juego-infinito)** ([Cristina Maldonado](https://cristinamaldonado.com/) | Theatre) - Sound adaptation and technical support
 2024 - **Pop** (Laura Alcalà & Irene Vicente Salas | Dance)
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Theatre)
