@@ -1,5 +1,6 @@
 #### Espacio sonoro y Música para Artes escénicas
 
+2024 - **Natal** (Animal Religion | Circo)
 2024 - **[Juego Infinito](https://www.firatarrega.cat/fira/programa/es_2024/32/juego-infinito)** ([Cristina Maldonado](https://cristinamaldonado.com/) | Teatro) - Adaptación sonora y implantación técnica
 2024 - **Pop** (Laura Alcalà & Irene Vicente Salas | Danza)
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Teatro)
