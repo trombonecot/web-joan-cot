@@ -40,6 +40,7 @@
 
 
 #### Light design for Performing arts
+2025 - **Traffic Jam Zoom** (Closca | Light and Sound installation) - Programming
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Theatre)
 2024 - **[39è Festival Internacional de Poesia de Barcelona](https://www.palaumusica.cat/ca/39e-festival-internacional-de-poesia-de-barcelona_1314313)** (Aurora Bauzà and Pere Jou | Poetry Recital at Palau de la Música Catalana) - With Jou Serra
 2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** (Irene Vicente Salas | Temporary performance exhibition)
