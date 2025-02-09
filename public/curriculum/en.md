@@ -84,5 +84,5 @@
 
 
 #### Conducting
-2018-24 - **[La Clika](https://www.laclika.cat/)** (Cases de la Música)
+2018-25 - **[La Clika](https://www.laclika.cat/)** (Cases de la Música)
 2014-19 - **Banda Fugarolas** (Can Fugarolas)
