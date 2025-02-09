@@ -1,5 +1,6 @@
 #### Espacio sonoro y Música para Artes escénicas
 
+2025 - **Traffic Jam Zoom** (Closca | Instalación lumínico-sonora)
 2024 - **Natal** (Animal Religion | Circo)
 2024 - **[Juego Infinito](https://www.firatarrega.cat/fira/programa/es_2024/32/juego-infinito)** ([Cristina Maldonado](https://cristinamaldonado.com/) | Teatro) - Adaptación sonora y implantación técnica
 2024 - **Pop** (Laura Alcalà & Irene Vicente Salas | Danza)
