@@ -1,6 +1,6 @@
 #### Espai Sonor i Música per Arts escèniques
 
-2025 - **Allò Invisible** ([Animal Religion](http://www.animalreligion.com/) | Tallers d'improvisació escènica amb nens TEA)
+2025 - **Allò Invisible** ([Animal Religion](http://www.animalreligion.com/) | Tallers d'improvisació escènica amb nens amb TEA)
 2025 - **Traffic Jam Zoom** (Closca | Instal·lació lumínica-sonora)
 2024 - **Natal** (Animal Religion | Circ)
 2024 - **[Juego Infinito](https://www.firatarrega.cat/fira/programa/2024/32/juego-infinito)** ([Cristina Maldonado](https://cristinamaldonado.com/) | Teatre) - Adaptació sonora i implentació tècnica
