@@ -1,6 +1,7 @@
 
 #### Sound and music for Performing arts
 
+2025 - **Allò Invisible** ([Animal Religion](http://www.animalreligion.com/) | Improvisational workshops with children with autism)
 2025 - **Traffic Jam Zoom** (Closca | Light and Sound installation)
 2024 - **Natal** (Animal Religion | Circus)
 2024 - **[Infinite game](https://www.firatarrega.cat/fira/programa/en_2024/32/juego-infinito)** ([Cristina Maldonado](https://cristinamaldonado.com/) | Theatre) - Sound adaptation and technical support
