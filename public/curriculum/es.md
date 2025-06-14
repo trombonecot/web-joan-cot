@@ -3,7 +3,7 @@
 2025 - **Allò Invisible** ([Animal Religion](http://www.animalreligion.com/) | Talleres de improvisación escénica con niños con TEA)
 2025 - **Traffic Jam Zoom** (Closca | Instalación lumínico-sonora)
 2024 - **Natal** (Animal Religion | Circo)
-2024 - **[Juego Infinito](https://www.firatarrega.cat/fira/programa/es_2024/32/juego-infinito)** ([Cristina Maldonado](https://cristinamaldonado.com/) | Teatro) - Adaptación sonora y implantación técnica
+2024 - **[Juego Infinito](https://cristinamaldonado.com/portfolio/infinite-game/)** ([Cristina Maldonado](https://cristinamaldonado.com/) | Teatro) - Adaptación sonora y implantación técnica
 2024 - **Pop** (Laura Alcalà & Irene Vicente Salas | Danza)
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Teatro)
 2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Exposición performática temporal)
