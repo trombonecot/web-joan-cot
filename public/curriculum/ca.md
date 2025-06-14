@@ -1,9 +1,10 @@
 #### Espai Sonor i Música per Arts escèniques
 
+2025 - **I'm here I'm not** ([Cristina Maldonado](https://cristinamaldonado.com/) | Teatre)
 2025 - **Allò Invisible** ([Animal Religion](http://www.animalreligion.com/) | Tallers d'improvisació escènica amb nens amb TEA)
 2025 - **Traffic Jam Zoom** (Closca | Instal·lació lumínica-sonora)
 2024 - **Natal** (Animal Religion | Circ)
-2024 - **[Juego Infinito](https://www.firatarrega.cat/fira/programa/2024/32/juego-infinito)** ([Cristina Maldonado](https://cristinamaldonado.com/) | Teatre) - Adaptació sonora i implentació tècnica
+2024 - **[Juego Infinito]([(https://cristinamaldonado.com/portfolio/infinite-game/)]** ([Cristina Maldonado](https://cristinamaldonado.com/) | Teatre) - Adaptació sonora i implentació tècnica
 2024 - **Pop** (Laura Alcalà & Irene Vicente Salas | Dansa)
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Teatre)
 2024 - **[Corpus - Sismògraf](https://www.sismografolot.cat/ca/programacio/c/160-corpus.html)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Exposició performàtica temporal)
