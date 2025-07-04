@@ -1,5 +1,6 @@
 #### Espai Sonor i Música per Arts escèniques
 
+2025 - **[OASI](https://www.barcelona.cat/grec/ca/espectacle/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dansa)
 2025 - **I'm here I'm not** ([Cristina Maldonado](https://cristinamaldonado.com/) | Teatre)
 2025 - **Allò Invisible** ([Animal Religion](http://www.animalreligion.com/) | Tallers d'improvisació escènica amb nens amb TEA)
 2025 - **Traffic Jam Zoom** (Closca | Instal·lació lumínica-sonora)
@@ -41,6 +42,7 @@
 
 
 #### Disseny d'il·luminació per Arts escèniques
+2025 - **[OASI](https://www.barcelona.cat/grec/ca/espectacle/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dansa)
 2025 - **Traffic Jam Zoom** (Closca | Instal·lació lumínica-sonora) - Programació
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Teatre)
 2024 - **[39è Festival Internacional de Poesia de Barcelona](https://www.palaumusica.cat/ca/39e-festival-internacional-de-poesia-de-barcelona_1314313)** (Aurora Bauzà i Pere Jou | Recital de poesia al Palau de la Música Catalana) - Amb Jou Serra
