@@ -1,9 +1,12 @@
-**Joan Cot Ros**
+.
+.
+Joan Cot Ros is a composer and sound artist. He studied Music Composition at University College Falmouth (incorporating Dartington College of Arts) and bases his practice on the development of music, music and sound for the performing arts, and the creation of sound installations. 
+.
+His personal interest lies on interdisciplinarity and contemporary art. He has worked on theatre, dance, circus and performance, where he has had the opportunity to express himself through other artistic languages such as dramaturgy, lighting and space. His artistic research is developed in the context of electronic music and electroacoustic music, exploring ideas of rhythm, tempo, density, texture and tone through algorithmic compositions.
+.
+He has collaborated with artists like Animal Religion, Joan Català, Cristina Maldonado, Irene Vicente Salas, Roi Borrallas, Los Galindos, SLMFV, Lucas Condró, Carlota Grau, Milagros Garcia, Aurora Bauzà and Pere Jou, Martí Soler, Circ Vermut, and Laura Alcalà, among others. He has performed in theatres and festivals such as TNC, Mercat de les Flors, Teatre Lliure, Temporada Alta, Festival Grec, Festival elPetit, Festival TNT, Teatros del Canal, Festival Mirada (Brazil), Festival Oerol (Netherlands), Edinburgh Children's Festival, Berlin Circus Festival, and C!CAF (Denmark).
+.
+You can check the full CV, listen to some music or write an email in the links down below.
+.
 
-Hi,
 
-I'm Joan and I'm a musical composer and sound artist interested in contemporary art and interdisciplinarity. I got my degree on Music Composition from University College Falmouth (incorporating Dartington College of Arts) in UK around 2012. Since then I developed multiple projects ranging from circus, dance and theatre, to sound installations and music for audiovisuals. My artistic research deals with randomness and the control and non-control of the elements used in the compositions and the relations they establish.
-
-I'm part of the circus company Animal Religion. I have colaborated with artists like Joan Català, Cristina Maldonado, Irene Vicente Salas, Roi Borrallas, Los Galindos, SLMFV, Lucas Condró, Carlota Grau, Milagros Garcia, Aurora Bauzà i Pere Jou, Martí Soler, Circ Vermut and Laura Alcalà, amongst others. I've performed in theatres and festivals like TNC, Mercat de les Flors, Teatre Lliure, Temporada Alta, Festival Grec, Festival elPetit, Festival TNT, Teatros del Canal, Festival Mirada (Brazil), Festival Oerol (Netherlands), Edinburgh Children's Festival, Berlin Circus Festival or C!CAF (Denmark).
-
-You can check my full CV, listen to some music or write me an email in the links down below.
