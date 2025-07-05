@@ -19,7 +19,7 @@
 2022 - **[CASA NOSTRA](https://www.silosmartesfueranviernes.com/casa-nostra/)** (SLMFV | Dansa) - Suport tècnic i artístic a l'espai sonor
 2022 - **TSUNAMI or something's gonna happen tonight** (Carlota Grau | Noves dramatúrgies) - amb Pau Matas
 2022 - **[Chakai](https://www.dansinvitro.com/chakai)** (Marta Dalmau | Dansa)
-2022 - **Solo** (Roi Borrallas | Circ) - Espai sonor i ull extern
+2022 - **Solo** (Roi Borrallas | Circ) - Espai sonor
 2021 - **Exabrupte** (Maria Garriga | Dansa)
 2020 - **Fent Cua** (Urša Sekirnik & Jou Serra | Performance/Dansa)
 2020 - **[Ahir](https://www.animalreligion.com/ahir)** ([Animal Religion](http://www.animalreligion.com/) | Circ)
@@ -50,6 +50,15 @@
 2023 - **[Rave Familiar](https://www.elpetit.cat/ca/programacio/c/21-rave-un-espai-per-ballar-en-familia.html)** (Mireia de Querol, Dory Sanchez i Laura Alcalà | Dansa) - Desenvolupament de software per la integració de llums i música
 2023 - **[Sota Terra](https://www.moonribasquimgiron.com/stronger-peripheries-cat-1)** ([Moon Ribas i Quim Giron](https://www.moonribasquimgiron.com/) | Dansa i Circ)
 2022 - **Solo** (Roi Borrallas | Circ)
+
+
+#### Dramatúrgia
+
+2025 - **[Oasi](https://www.barcelona.cat/grec/ca/espectacle/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dansa) - Assistència a la dramatúrgia
+2024 - **Natal** (Animal Religion | Circ) - Amb Irene Vicente Salas
+2024 - **[Copiar](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circ)
+2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Circ) - Assessorament dramatúrgic
+2022 - **Solo** (Roi Borrallas | Circ) - Ull extern
 
 
 #### Albums
