@@ -4,7 +4,7 @@
 2025 - **I'm here I'm not** ([Cristina Maldonado](https://cristinamaldonado.com/) | Theatre)
 2025 - **Allò Invisible** ([Animal Religion](http://www.animalreligion.com/) | Improvisational workshops with children with autism)
 2025 - **Traffic Jam Zoom** (Closca | Light and Sound installation)
-2024 - **Natal** (Animal Religion | Circus)
+2024 - **Natal** ([Animal Religion](http://www.animalreligion.com/) | Circus)
 2024 - **[Infinite game](https://cristinamaldonado.com/portfolio/infinite-game/)** ([Cristina Maldonado](https://cristinamaldonado.com/) | Theatre) - Sound adaptation and technical support
 2024 - **Pop** (Laura Alcalà & Irene Vicente Salas | Dance)
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Theatre)
@@ -55,10 +55,10 @@
 #### Dramaturgy
 
 2025 - **[Oasi](https://www.barcelona.cat/grec/ca/espectacle/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dance) - Assistant to the dramaturgy
-2024 - **Natal** (Animal Religion | Circ) - With Irene Vicente Salas
-2024 - **[Copiar](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circ)
-2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Circ) - Dramaturgy advice
-2022 - **Solo** (Roi Borrallas | Circ) - ull extern
+2024 - **Natal** ([Animal Religion](http://www.animalreligion.com/) | Circus) - With Irene Vicente Salas
+2024 - **[Copiar](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circus)
+2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Circus) - Dramaturgy advice
+2022 - **Solo** (Roi Borrallas | Circus) - Outside eye
 
 
 #### Albums
