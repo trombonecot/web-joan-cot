@@ -52,6 +52,15 @@
 2022 - **Solo** (Roi Borrallas | Circus)
 
 
+#### Dramaturgy
+
+2025 - **[Oasi](https://www.barcelona.cat/grec/ca/espectacle/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dance) - Assistant to the dramaturgy
+2024 - **Natal** (Animal Religion | Circ) - With Irene Vicente Salas
+2024 - **[Copiar](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circ)
+2023 - **[Idiòfona](https://www.joancatala.pro/es/idiofona-es/)** ([Joan Català](https://www.joancatala.pro) | Circ) - Dramaturgy advice
+2022 - **Solo** (Roi Borrallas | Circ) - ull extern
+
+
 #### Albums
 2022 - **[NARRO](https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros)
 2021 - **[Fugarolas Sessions](https://worran.bandcamp.com/album/fugarolas-sessions)** (Worran)
@@ -62,10 +71,10 @@
 #### Composition commissions
 2020 - **Estel** (Cavalcada de Barcelona)
 2013 - **Sant Jordi Style** (Laiteans | Arrangement-album)
-2011 - 	**Dragalió de Mataró** (Mataró City Hall | Música)
+2011 - **Dragalió de Mataró** (Mataró City Hall | Música)
 
 
-#### Other projects
+#### Other music and sound projects
 2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau | Electronic + sound esculptures)
 2021 - **[Homenatge a Quirze Perich](https://www.youtube.com/watch?v=FSU2bZFj9E0)** (Joan Cot Ros | Electronic)
 2018-22 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
