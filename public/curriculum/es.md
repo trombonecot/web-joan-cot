@@ -1,5 +1,6 @@
 #### Espacio sonoro y Música para Artes escénicas
 
+2025 - **The Place** ([Eléctrico 28](https://www.electrico28.org/ca/) | Teatro) - Espacio Sonoro
 2025 - **[Oasi](https://www.barcelona.cat/grec/es/espectaculos/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Danza)
 2025 - **I'm here I'm not** ([Cristina Maldonado](https://cristinamaldonado.com/) | Teatro)
 2025 - **Allò Invisible** ([Animal Religion](http://www.animalreligion.com/) | Talleres de improvisación escénica con niños con TEA)
