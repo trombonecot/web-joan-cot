@@ -1,5 +1,6 @@
 #### Sound and music for Performing arts
 
+2025 - **The Place** ([Eléctrico 28](https://www.electrico28.org/ca/) | Theatre) - Sound Design
 2025 - **[Oasi](https://www.barcelona.cat/grec/en/show/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dance)
 2025 - **I'm here I'm not** ([Cristina Maldonado](https://cristinamaldonado.com/) | Theatre)
 2025 - **Allò Invisible** ([Animal Religion](http://www.animalreligion.com/) | Improvisational workshops with children with autism)
