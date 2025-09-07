@@ -69,7 +69,7 @@
 2013 - **[A shocking waste](https://soundcloud.com/oanotos/sets/a-shocking-waste-1)** (Joan Cot Ros)
 
 
-#### Encàrregs de composició
+#### Encàrrecs de composició
 2020 - **Estel** (Cavalcada de Barcelona)
 2013 - **Sant Jordi Style** (Laiteans | Arranjament-album)
 2011 - **Ball propi del Dragalió de Mataró** (Ajuntament de Mataró | Música)
