@@ -1,6 +1,6 @@
 #### Espacio sonoro y Música para Artes escénicas
 
-2025 - **[La Guarida de los sentidos](https://imagin.art/ca/cau/)** ([Imaginart) | Instal·lación para primera infáncia)
+2025 - **[La Guarida de los sentidos](https://imagin.art/ca/cau/)** (Imaginart | Instal·lación para primera infáncia)
 2025 - **The Place** ([Eléctrico 28](https://www.electrico28.org/ca/) | Teatro) - Espacio Sonoro
 2025 - **[Oasi](https://www.barcelona.cat/grec/es/espectaculos/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Danza)
 2025 - **I'm here I'm not** ([Cristina Maldonado](https://cristinamaldonado.com/) | Teatro)
