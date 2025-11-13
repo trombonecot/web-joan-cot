@@ -1,6 +1,6 @@
 #### Espai Sonor i Música per Arts escèniques
 
-2025 - **Ona** (Laura Alcalà & La Subita | Dansa) - Amb Jordi Claret
+2025 - **Ona** (Laura Alcalà & La Subita | Dansa) - amb Jordi Claret
 2025 - **[El Cau dels Sentits](https://imagin.art/ca/cau/)** (Imaginart | Instal·lació per primera infància)
 2025 - **The Place** ([Eléctrico 28](https://www.electrico28.org/ca/) | Teatre) - Espai Sonor
 2025 - **[Oasi](https://www.barcelona.cat/grec/ca/espectacle/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dansa)
