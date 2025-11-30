@@ -82,7 +82,7 @@
 
 #### Altres projectes de música
 
-2025 - **Amebas** (Sintonia del Podcast d'Irene Vicente Salas i Laura Alcalà)
+2025 - **Amebas** (Sintonia del podcast d'Irene Vicente Salas i Laura Alcalà)
 2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau | Electrònica + escultures)
 2021 - **[Homenatge a Quirze Perich](https://www.youtube.com/watch?v=FSU2bZFj9E0)** (Joan Cot Ros | Electrònica)
 2018-22 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
