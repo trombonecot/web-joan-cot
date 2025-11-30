@@ -73,21 +73,17 @@
 2013 - **[A shocking waste](https://soundcloud.com/oanotos/sets/a-shocking-waste-1)** (Joan Cot Ros)
 
 
-#### Encargos de composición
-
-2020 - **Estel** (Cavalcada de Barcelona)
-2013 - **Sant Jordi Style** (Laiteans | Arranjament-album)
-2011 - **Ball propi del Dragalió de Mataró** (Ajuntament de Mataró | Música)
-
-
-#### Otros proyectos de música
+#### Encargos de composición y otros proyectos musicales
 
 2025 - **Amebas** (Música para el podcast de Irene Vicente Salas y Laura Alcalà)
 2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau | Electrónica + esculturas)
 2021 - **[Homenatge a Quirze Perich](https://www.youtube.com/watch?v=FSU2bZFj9E0)** (Joan Cot Ros | Electrónica)
+2020 - **Estel** (Cavalcada de Barcelona)
 2018-22 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
 2018-21 - **[Worran](https://soundcloud.com/user-385742958)** (aR+Lu+TT+Jo | Grupo de música electrónica)
 2016-21 - **[Iklo](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Marcos Bernabé + yo | Dueto de impro)
+2013 - **Sant Jordi Style** (Laiteans | Arranjament-album)
+2011 - **Ball propi del Dragalió de Mataró** (Ajuntament de Mataró | Música)
 2009-12 - **[Eric](https://soundcloud.com/benjamin-cerigo/eric-eric)** (Patch Ben and I	 | Jazz trio)
 2008 - **[No Standard](https://www.youtube.com/watch?v=i4ph25X7hR0)** (Poch, Kiko, Tavares y yo | Jazz quartet)
 
