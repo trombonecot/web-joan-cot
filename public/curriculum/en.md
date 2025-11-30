@@ -45,6 +45,7 @@
 
 
 #### Light design for Performing arts
+
 2025 - **[Oasi](https://www.barcelona.cat/grec/en/show/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dance)
 2025 - **Traffic Jam Zoom** (Closca | Light and Sound installation) - Programming
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Theatre)
@@ -65,6 +66,7 @@
 
 
 #### Albums
+
 2022 - **[NARRO](https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros)
 2021 - **[Fugarolas Sessions](https://worran.bandcamp.com/album/fugarolas-sessions)** (Worran)
 2017 - **[IKLO](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Iklo)
@@ -72,12 +74,15 @@
 
 
 #### Composition commissions
+
 2020 - **Estel** (Cavalcada de Barcelona)
 2013 - **Sant Jordi Style** (Laiteans | Arrangement-album)
 2011 - **Dragalió de Mataró** (Mataró City Hall | Música)
 
 
-#### Other music and sound projects
+#### Other music projects
+
+2025 - **Amebas** (Music for Irene Vicente Salas and Laura Alcalà's podcast)
 2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau | Electronic + sound esculptures)
 2021 - **[Homenatge a Quirze Perich](https://www.youtube.com/watch?v=FSU2bZFj9E0)** (Joan Cot Ros | Electronic)
 2018-22 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
@@ -88,6 +93,7 @@
 
 
 #### Music for Audiovisuals
+
 2017 - **A Legend** (Toc Toc produccions | Advertisement)
 2016 - **[How to disappear](https://vimeo.com/173626075)** (Toc Toc produccions | Advertisement)
 2016 - **[Tallers de la Titi](https://vimeo.com/151167877)** (Jordi Aliberas | Advertisement)
@@ -99,5 +105,6 @@
 
 
 #### Conducting
+
 2018-25 - **[La Clika](https://www.laclika.cat/)** (Cases de la Música)
 2014-19 - **Banda Fugarolas** (Can Fugarolas)
