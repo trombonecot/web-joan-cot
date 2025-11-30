@@ -73,7 +73,7 @@
 2013 - **[A shocking waste](https://soundcloud.com/oanotos/sets/a-shocking-waste-1)** (Joan Cot Ros)
 
 
-#### Encàrrecs de composició i projectes diversos
+#### Encàrrecs de composició i projectes musicals diversos
 
 2025 - **Amebas** (Sintonia del podcast d'Irene Vicente Salas i Laura Alcalà)
 2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau | Electrònica + escultures)
