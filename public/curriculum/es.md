@@ -45,6 +45,7 @@
 
 
 #### Diseño de iluminación para Artes escénicas
+
 2025 - **[Oasi](https://www.barcelona.cat/grec/es/espectaculos/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Danza)
 2025 - **Traffic Jam Zoom** (Closca | Instalación lumínico-sonora) - Programación
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Teatro)
@@ -64,7 +65,8 @@
 2022 - **Solo** (Roi Borrallas | Circo) - Mirada externa
 
 
-#### Albums
+#### Albumes
+
 2022 - **[NARRO](https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros)
 2021 - **[Fugarolas Sessions](https://worran.bandcamp.com/album/fugarolas-sessions)** (Worran)
 2017 - **[IKLO](http://www.tecnonucleo.org/index.php?page=release&release=41)** (Iklo)
@@ -72,12 +74,15 @@
 
 
 #### Encargos de composición
+
 2020 - **Estel** (Cavalcada de Barcelona)
 2013 - **Sant Jordi Style** (Laiteans | Arranjament-album)
 2011 - **Ball propi del Dragalió de Mataró** (Ajuntament de Mataró | Música)
 
 
-#### Otros proyectos de musica y sonido
+#### Otros proyectos de música
+
+2025 - **Amebas** (Música para el podcast de Irene Vicente Salas y Laura Alcalà)
 2021 - **[Homenatge 61 anys de la Sati](https://teatrelagarriga.cat/programacio/homenatge-61-anys-de-la-sati/)** (Iklo + Barraca Xau | Electrónica + esculturas)
 2021 - **[Homenatge a Quirze Perich](https://www.youtube.com/watch?v=FSU2bZFj9E0)** (Joan Cot Ros | Electrónica)
 2018-22 - **[MicroBrass](https://soundcloud.com/microbrass)** (MicroBrass | Brass Band)
@@ -88,6 +93,7 @@
 
 
 #### Audiovisuales
+
 2017 - **A Legend** (Toc Toc produccions | Anuncio)
 2016 - **[How to disappear](https://vimeo.com/173626075)** (Toc Toc produccions | Anuncio)
 2016 - **[Tallers de la Titi](https://vimeo.com/151167877)** (Jordi Aliberas | Anuncio)
@@ -99,6 +105,7 @@
 
 
 #### Dirección musical
+
 2018-25 - **[La Clika](https://www.laclika.cat/)** (Cases de la Música | Cantata infantil)
 2014-19 - **Banda Fugarolas** (Can Fugarolas | Banda musical)
 
