@@ -66,7 +66,7 @@
 2022 - **Solo** (Roi Borrallas | Circo) - Mirada externa
 
 
-#### Direcció escènica
+#### Dirección escénica
 
 2026 - **Escala 1:1000** (Magí Serra y Joan Cot Ros | Danza) - Proyecto Tot Dansa 2026
 2024 - **[Copiar](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circo) - codirigido con Quim Giron y Jou Serra
