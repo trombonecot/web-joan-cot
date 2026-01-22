@@ -66,6 +66,13 @@
 2022 - **Solo** (Roi Borrallas | Circus) - Outside eye
 
 
+#### Stage director
+
+2026 - **Escala 1:1000** (Magí Serra and Joan Cot Ros | Dance) - Project Tot Dansa 2026
+2024 - **[Copiar](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circus) - directed with Quim Giron and Jou Serra
+2019 - **[…and the ideas soar](https://www.animalreligion.com/ilesideesvolen)** ([Animal Religion](http://www.animalreligion.com/) | Circus) - directed with Quim Giron and Jou Serra
+
+
 #### Albums
 
 2022 - **[NARRO](https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros)
