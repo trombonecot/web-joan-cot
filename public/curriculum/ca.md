@@ -1,5 +1,6 @@
 #### Espai Sonor i Música per Arts escèniques
 
+2026 - **Els objectes flotants (després de la tempesta)** ([La Conquesta del Pol Sud](https://www.laconquesta.com/) | Teatre)
 2025 - **Ona** (Laura Alcalà & La Subita | Dansa) - amb Jordi Claret
 2025 - **[El Cau dels Sentits](https://imagin.art/ca/cau/)** (Imaginart | Instal·lació per primera infància)
 2025 - **The Place** ([Eléctrico 28](https://www.electrico28.org/ca/) | Teatre) - Espai Sonor
