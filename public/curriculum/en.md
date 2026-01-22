@@ -1,5 +1,6 @@
 #### Sound and music for Performing arts
 
+2026 - **Els objectes flotants (després de la tempesta)** ([La Conquesta del Pol Sud](https://www.laconquesta.com/) | Theatre)
 2025 - **Ona** (Laura Alcalà & La Subita | Dance) - with Jordi Claret
 2025 - **[The Lair of the senses](https://imagin.art/en/lair/)** (Imaginart | Toddler installation)
 2025 - **The Place** ([Eléctrico 28](https://www.electrico28.org/ca/) | Theatre) - Sound Design
