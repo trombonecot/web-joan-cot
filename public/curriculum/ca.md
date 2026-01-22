@@ -66,6 +66,13 @@
 2022 - **Solo** (Roi Borrallas | Circ) - Ull extern
 
 
+#### Direcció escènica
+
+2026 - **Escala 1:1000** (Magí Serra i Joan Cot Ros | Dansa) - Projecte Tot Dansa 2026
+2024 - **[Copiar](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circ) - codirigit amb Quim Giron i Jou Serra
+2019 - **[…i les idees volen](https://www.animalreligion.com/ilesideesvolen)** ([Animal Religion](http://www.animalreligion.com/) | Circ) - codirigit amb Quim Giron i Jou Serra
+
+
 #### Albums
 
 2022 - **[NARRO](https://narro.bandcamp.com/album/narro)** (Pau Benítez + Joan Cot Ros)
