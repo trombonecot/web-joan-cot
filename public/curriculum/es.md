@@ -1,5 +1,6 @@
 #### Espacio sonoro y Música para Artes escénicas
 
+2026 - **Els objectes flotants (després de la tempesta)** ([La Conquesta del Pol Sud](https://www.laconquesta.com/) | Teatro)
 2025 - **Ona** (Laura Alcalà & La Subita | Danza) - con Jordi Claret
 2025 - **[La Guarida de los sentidos](https://imagin.art/ca/cau/)** (Imaginart | Instal·lación para primera infáncia)
 2025 - **The Place** ([Eléctrico 28](https://www.electrico28.org/ca/) | Teatro) - Espacio Sonoro
