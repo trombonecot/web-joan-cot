@@ -1,5 +1,6 @@
 #### Espai Sonor i Música per Arts escèniques
 
+2026 - **Escala 1:1000** (Magí Serra i Joan Cot Ros | Dansa) - Projecte Tot Dansa 2026
 2026 - **Els objectes flotants (després de la tempesta)** ([La Conquesta del Pol Sud](https://www.laconquesta.com/) | Teatre)
 2025 - **Ona** (Laura Alcalà & La Subita | Dansa) - amb Jordi Claret
 2025 - **[El Cau dels Sentits](https://imagin.art/ca/cau/)** (Imaginart | Instal·lació per primera infància)
