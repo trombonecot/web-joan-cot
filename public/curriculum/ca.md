@@ -48,6 +48,7 @@
 
 #### Disseny d'il·luminació per Arts escèniques
 
+2026 - **Escala 1:1000** (Magí Serra i Joan Cot Ros | Dansa) - Amb Magí Serra
 2025 - **[Oasi](https://www.barcelona.cat/grec/ca/espectacle/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dansa)
 2025 - **Traffic Jam Zoom** (Closca | Instal·lació lumínica-sonora) - Programació
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Teatre)
