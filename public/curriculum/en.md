@@ -1,5 +1,6 @@
 #### Sound and music for Performing arts
 
+2026 - **Escala 1:1000** (Magí Serra and Joan Cot Ros | Dance) - Project Tot Dansa 2026
 2026 - **Els objectes flotants (després de la tempesta)** ([La Conquesta del Pol Sud](https://www.laconquesta.com/) | Theatre)
 2025 - **Ona** (Laura Alcalà & La Subita | Dance) - with Jordi Claret
 2025 - **[The Lair of the senses](https://imagin.art/en/lair/)** (Imaginart | Toddler installation)
@@ -47,6 +48,7 @@
 
 #### Light design for Performing arts
 
+2026 - **Escala 1:1000** (Magí Serra and Joan Cot Ros | Dance) - with Magí Serra
 2025 - **[Oasi](https://www.barcelona.cat/grec/en/show/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dance)
 2025 - **Traffic Jam Zoom** (Closca | Light and Sound installation) - Programming
 2024 - **[Miratges a l'ombra del molí de la Galette](https://www.museunacional.cat/ca/activitats/miratges-lombra-del-moulin-de-la-galette)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Theatre)
