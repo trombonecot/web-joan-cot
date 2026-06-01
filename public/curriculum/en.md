@@ -1,5 +1,6 @@
 #### Sound and music for Performing arts
 
+2026 - **Circ de Llauna** (PSIRC / Benet Jofre | Circus)
 2026 - **Escala 1:1000** (Magí Serra and Joan Cot Ros | Dance) - Project Tot Dansa 2026
 2026 - **Els objectes flotants (després de la tempesta)** ([La Conquesta del Pol Sud](https://www.laconquesta.com/) | Theatre)
 2025 - **Ona** (Laura Alcalà & La Subita | Dance) - with Jordi Claret
