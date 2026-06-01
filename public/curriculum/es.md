@@ -1,5 +1,6 @@
 #### Espacio sonoro y Música para Artes escénicas
 
+2026 - **Circ de Llauna** (PSIRC / Benet Jofre | Circo)
 2026 - **Escala 1:1000** (Magí Serra y Joan Cot Ros | Danza) - Proyecto Tot Dansa 2026
 2026 - **Els objectes flotants (després de la tempesta)** ([La Conquesta del Pol Sud](https://www.laconquesta.com/) | Teatro)
 2025 - **Ona** (Laura Alcalà & La Subita | Danza) - con Jordi Claret
