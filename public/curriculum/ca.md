@@ -1,5 +1,7 @@
 #### Espai Sonor i Música per Arts escèniques
 
+2026 - **Oniro** ([RubiK al Kuadrado](http://www.rubiktheater.com/) | Teatre)
+2026 - **Extra Motivated People** ([Losinformalls](https://losinformalls.com/ca/inicio_cat/) | Dansa)
 2026 - **Circ de Llauna** (PSIRC / Benet Jofre | Circ)
 2026 - **Escala 1:1000** (Magí Serra i Joan Cot Ros | Dansa) - Projecte Tot Dansa 2026
 2026 - **Els objectes flotants (després de la tempesta)** ([La Conquesta del Pol Sud](https://www.laconquesta.com/) | Teatre)
