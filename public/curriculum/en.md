@@ -2,7 +2,7 @@
 
 2026 - **Oniro** ([RubiK al Kuadrado](http://www.rubiktheater.com/) | Theatre)
 2026 - **Extra Motivated People** ([Losinformalls](https://losinformalls.com/ca/inicio_cat/) | Dance)
-2026 - **Circ de Llauna** (PSIRC / Benet Jofre | Circus)
+2026 - **Circ de Llauna** ([PSIRC](https://psirc.net/) / Benet Jofre | Circus)
 2026 - **Escala 1:1000** (Magí Serra and Joan Cot Ros | Dance) - Project Tot Dansa 2026
 2026 - **Els objectes flotants (després de la tempesta)** ([La Conquesta del Pol Sud](https://www.laconquesta.com/) | Theatre)
 2025 - **Ona** (Laura Alcalà & La Subita | Dance) - with Jordi Claret
