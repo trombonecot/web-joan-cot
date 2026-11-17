@@ -52,7 +52,7 @@
 
 #### Disseny d'il·luminació per Arts escèniques
 
-2026 - **Obertura** (10Hz + Imaginart | Teatre interdisciplinar per infància)
+2026 - **Obertura** (10Hz + Imaginart | Teatre interdisciplinar per infància) - Amb Jou Serra
 2026 - **Escala 1:1000** (Magí Serra i Joan Cot Ros | Dansa) - Amb Magí Serra
 2025 - **[Oasi](https://www.barcelona.cat/grec/ca/espectacle/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dansa)
 2025 - **Traffic Jam Zoom** (Closca | Instal·lació lumínica-sonora) - Programació
@@ -66,7 +66,7 @@
 
 #### Dramatúrgia
 
-2026 - **Obertura** (10Hz + Imaginart | Teatre interdisciplinar per infància)
+2026 - **Obertura** (10Hz + Imaginart | Teatre interdisciplinar per infància) - Amb Jou Serra
 2025 - **[Oasi](https://www.barcelona.cat/grec/ca/espectacle/oasi)** ([Irene Vicente Salas](https://www.irenevicente.com/) | Dansa) - Assistència a la dramatúrgia
 2024 - **Natal** (Animal Religion | Circ) - Amb Irene Vicente Salas
 2024 - **[Copiar](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circ)
@@ -76,7 +76,7 @@
 
 #### Direcció escènica
 
-2026 - **Obertura** (10Hz + Imaginart | Teatre interdisciplinar per infància)
+2026 - **Obertura** (10Hz + Imaginart | Teatre interdisciplinar per infància) - Amb Jou Serra
 2026 - **Escala 1:1000** (Magí Serra i Joan Cot Ros | Dansa) - Projecte Tot Dansa 2026
 2024 - **[Copiar](https://www.animalreligion.com/copia-de-ahir-2)** ([Animal Religion](http://www.animalreligion.com/) | Circ) - codirigit amb Quim Giron i Jou Serra
 2019 - **[…i les idees volen](https://www.animalreligion.com/ilesideesvolen)** ([Animal Religion](http://www.animalreligion.com/) | Circ) - codirigit amb Quim Giron i Jou Serra
