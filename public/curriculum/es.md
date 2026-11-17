@@ -1,5 +1,6 @@
 #### Espacio sonoro y Música para Artes escénicas
 
+2026 - **Obertura** (10Hz + Imaginart | Teatro interdisciplinar)
 2026 - **Oniro** ([RubiK al Kuadrado](http://www.rubiktheater.com/) | Teatro)
 2026 - **Extra Motivated People** ([Losinformalls](https://losinformalls.com/ca/inicio_cat/) | Danza)
 2026 - **Circ de Llauna** ([PSIRC](https://psirc.net/) / Benet Jofre | Circo)
