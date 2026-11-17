@@ -1,6 +1,6 @@
 #### Sound and music for Performing arts
 
-2026 - **Obertura** (10Hz + Imaginart | Teatro interdisciplinar)
+2026 - **Ouverture** (10Hz + Imaginart | Interdisciplinary theatre for children)
 2026 - **Oniro** ([RubiK al Kuadrado](http://www.rubiktheater.com/) | Theatre)
 2026 - **Extra Motivated People** ([Losinformalls](https://losinformalls.com/ca/inicio_cat/) | Dance)
 2026 - **Circ de Llauna** ([PSIRC](https://psirc.net/) / Benet Jofre | Circus)
